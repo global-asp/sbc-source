@@ -30,5 +30,5 @@ Posso ler para mim mesmo!
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Translators without Borders, Marcella Selwyn
+* Translation: Translators without Borders, Marcella Selwyn, Priscilla Freitas de Oliveira
 * Language: pt

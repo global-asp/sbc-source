@@ -1,4 +1,4 @@
-# Uma Pequena Sementinha: A História de Wangari Maathai
+# Uma pequena sementinha: A história de Wangari Maathai
 
 ##
 Em uma aldeia nas encostas do Monte Quênia na Africa Oriental, uma menininha trabalhava no campo com sua mãe. Seu nome era Wangari.

@@ -13,10 +13,10 @@ Estará em cima do armário?
 Estará atrás do sofá?
 
 ##
-Estará ao lado do balde do lixo?
+Estará ao lado da lixeira?
 
 ##
-Estará dentro do cesto?
+Estará dentro da cesta?
 
 ##
 Estará fora de casa?
@@ -28,5 +28,5 @@ Está aqui!
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath
-* Translation: Translators without Borders, Rossana Lima
+* Translation: Translators without Borders, Rossana Lima, Priscilla Freitas de Oliveira
 * Language: pt

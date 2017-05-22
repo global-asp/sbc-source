@@ -1,10 +1,10 @@
 # Castigo
 
 ##
-Um dia, a mamã trouxe imensa fruta.
+Um dia, a mamãe trouxe imensa fruta.
 
 ##
-"Quando podemos comer alguma fruta?," perguntámos."Vamos comer fruta esta noite," disse a mamã.
+"Quando podemos comer alguma fruta?," perguntámos. "Vamos comer fruta esta noite," disse a mamãe.
 
 ##
 O meu irmão Rahim é ganancioso.
@@ -12,39 +12,39 @@ O meu irmão Rahim é ganancioso.
 Provou a fruta toda e comeu muita fruta.
 
 ##
-"Vejam o que o Rahim fez", gritou o meu irmão mais novo."O Rahim é malandro e egoísta," disse eu.
+"Vejam o que o Rahim fez", gritou o meu irmão mais novo. "O Rahim é malandro e egoísta," disse eu.
 
 ##
-A mamã ficou zangada com o Rahim.
+A mamãe ficou zangada com o Rahim.
 
 ##
-Nós também ficámos zangados com o Rahim.
+Nós também ficamos zangados com o Rahim.
 
-Mas o Rahim não ficou arrependido.
-
-##
-"Não vais castigar o Rahim?", disse o irmão mais novo.
+Mas o Rahim não se arrependeu.
 
 ##
-"Rahim, vais arrepender-te em breve," disse a mamã.
+"Não vai castigar o Rahim?", disse o irmão mais novo.
 
 ##
-O Rahim não está a sentir-se muito bem.
+"Rahim, vai se arrepender em breve," disse a mamãe.
 
 ##
-"Dói-me muito a barriga," murmura Rahim.
+O Rahim não está se sentindo muito bem.
 
 ##
-A mamã sabia que isto ia acontecer. A fruta está a castigar Rahim!
+"Dói muito a minha barriga," murmura Rahim.
 
 ##
-Mais tarde, Rahim pediu-nos desculpa. "Não vou voltar a ser tão ganancioso," prometeu.
+A mamãe sabia que isto ia acontecer. A fruta está castigando Rahim!
 
-E nós, acreditamos.
+##
+Mais tarde, Rahim nos pediu desculpa. "Não vou voltar a ser tão ganancioso," prometeu.
+
+E nós acreditamos.
 
 ##
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
-* Translation: Translators without Borders, Nádia Morais
+* Translation: Translators without Borders, Nádia Morais, Priscilla Freitas de Oliveira
 * Language: pt

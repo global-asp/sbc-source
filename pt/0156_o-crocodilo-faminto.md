@@ -12,10 +12,10 @@ E depois…
 ##
 ZÁS!!!
 
-O crocodilo ataca!
+O crocodilo atacou!
 
 ##
-Depois disso, deixou de estar faminto e está feliz.
+Depois disso, não está mais faminto. Está feliz.
 
 ##
 Até ficar novamente faminto.
@@ -24,5 +24,5 @@ Até ficar novamente faminto.
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Translators without Borders, Isabel Ferreira
+* Translation: Translators without Borders, Isabel Ferreira, Priscilla Freitas de Oliveira
 * Language: pt

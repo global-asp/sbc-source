@@ -1,10 +1,10 @@
 # Contando os animais
 
 ##
-Um elefante está indobeber água.
+Um elefante está indo beber água.
 
 ##
-Duas girafas estão indobeber água.
+Duas girafas estão indo beber água.
 
 ##
 Três búfalos e quatro pássaros também estão indo beber água.
@@ -32,5 +32,5 @@ Um elefante está bebendo água com o leão.
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Translators without Borders, Debora Santos
+* Translation: Translators without Borders, Debora Santos, Priscilla Freitas de Oliveira
 * Language: pt

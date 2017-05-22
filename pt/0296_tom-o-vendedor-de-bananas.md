@@ -1,13 +1,13 @@
 # Tom, o vendedor de bananas
 
 ##
-O Tom está a carregar uma bandeja de bananas maduras.
+Tom está carregando uma bandeja de bananas maduras.
 
 ##
-O Tom vai ao mercado para vender as bananas.
+Tom vai para o mercado para vender as bananas.
 
 ##
-As pessoas no mercado estão a comprar frutas.
+As pessoas no mercado estão comprando frutas.
 
 ##
 Mas ninguém compra as bananas do Tom. Elas preferem comprar frutas de mulheres.
@@ -25,20 +25,20 @@ Uma mulher pega algumas bananas da bandeja. Ela olha para as bananas com muito c
 A mulher compra as bananas.
 
 ##
-Mais pessoas se aproximam. Elas compram as bananas do Tom e comem-nas.
+Mais pessoas se aproximam. Elas compram as bananas do Tom e comem.
 
 ##
-Rapidamente as bananas acabam. O Tom conta o dinheiro que ganhou.
+Rapidamente as bananas acabam. Tom conta o dinheiro que ganhou.
 
 ##
-O Tom compra sabão, açúcar e pão. Ele coloca as compras na bandeja.
+Tom compra sabão, açúcar e pão. Ele coloca as compras na bandeja.
 
 ##
-O Tom apoia a bandeja em sua cabeça e vai à casa.
+Tom apoia a bandeja em sua cabeça e vai à casa.
 
 ##
 * License: [CC-BY]
 * Text: Humphreys Odunga
 * Illustration: Zablon Alex Nguku
-* Translation: Translators without Borders, Carolina Iazzetta Alves
+* Translation: Translators without Borders, Carolina Iazzetta Alves, Priscilla Freitas de Oliveira
 * Language: pt

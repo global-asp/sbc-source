@@ -1,4 +1,4 @@
-# Anansi e o Sábio
+# Anansi e o sábio
 
 ##
 Há muito tempo atrás as pessoas não sabiam sobre nada. Elas não sabiam como cultivar planta alguma, ou como tecer roupas, ou como fazer instrumentos de ferro. O Deus Nyame, bem lá no alto do céu, possuía toda a sabedoria do mundo. Ele guardava toda essa sabedoria num vaso de barro.
