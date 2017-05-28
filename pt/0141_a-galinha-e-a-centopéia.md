@@ -68,7 +68,7 @@ A Galinha tossiu até que tossiu a Centopéia para fora do seu estômago.
 A Mãe Centopéia e sua filha subiram em uma árvore para se esconderem.
 
 ##
-A partir desse dia, a Galinha e a Centopéias eram inimigas.
+A partir desse dia, as galinhas e as centopéias eram inimigas.
 
 ##
 * License: [CC-BY]

@@ -1,4 +1,4 @@
-# Mir Yar: Sheekadii Wangari Maathai
+# Mir yar: Sheekadii Wangari Maathai
 
 ##
 Tuulo ku tiil buurta Mount Kenya ee Bariga Afrika babaceeda, gabar yar ayaa hooyadeed kala shaqeyn jirtay beeraha. Magaceedu waxa uu ahaa Wangari.

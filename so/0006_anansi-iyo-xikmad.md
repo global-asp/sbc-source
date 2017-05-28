@@ -1,4 +1,4 @@
-# Anansi iyo Xikmad
+# Anansi iyo xikmad
 
 ##
 Waagii hore dadku waxba ma ayan aqoon. Ma ayan aqoon sida miro loo beero, sida dhar loo sameeyo, iyo sida bir qalab looga sameeyo toona. Illaaha cirka ee Nyame ayaa xikmadda dunida oo dhan yiqiin. Waxana uu ku riday oo ku kaydiyey dhari dhoobo ka sameysan.

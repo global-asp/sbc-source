@@ -1,4 +1,4 @@
-# Aargoosigii Shimbir-malabka
+# Aargoosigii shimbir-malabka
 
 ##
 Sheekadani waxa ay dhexmartay shimbir-malab la yiraahdo Ngede iyo wiil damaaci ah oo la yiraahdo Gingile. Maalin ayaa Gingile oo ugaarsanayaa waxa uu maqlay ci'da Negede. Gingile waxa uu niyeystay malab waa uuna dhareeriyey. Wuu istaagay isaga oo si taxaddar leh u dhegeysanaya, oo raadraadinaya ilaa uu arkay shimbirkii oo geed halkeer ah dushii ku taagan. "Chitik-chitik-chitik," shimbirkii yarayd ayaa sidaa u ciyay, isaga oo geedba geed uga sii gudbaya. "Chitik-chitik-chitik," ayuu u sii ciyay, isaga oo hadba istaagaya oo dhawraya si uu u hubsado in uu Gingile la socdo.
