@@ -1,16 +1,16 @@
 # Compter les animaux
 
 ##
-Un éléphant va boire de l'eau.
+Un éléphant va boire l'eau.
 
 ##
-Deux girafes vont boire de l'eau.
+Deux girafes vont boire l'eau.
 
 ##
-Trois bisons et quatre oiseaux vont aussi boire de l'eau.
+Trois bœufs et quatre oiseaux vont aussi boire l'eau.
 
 ##
-Cinq impalas et six porcs sauvages marchent vers l'eau.
+Cinq impalas et six cochons sauvages vont boire l'eau.
 
 ##
 Sept zèbres courent vers l'eau.
