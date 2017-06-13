@@ -7,7 +7,7 @@ Un éléphant va boire l'eau.
 Deux girafes vont boire l'eau.
 
 ##
-Trois bœufs et quatre oiseaux vont aussi boire l'eau.
+Trois bœufs et quatre oiseaux vont boire l'eau.
 
 ##
 Cinq impalas et six cochons sauvages vont boire l'eau.
