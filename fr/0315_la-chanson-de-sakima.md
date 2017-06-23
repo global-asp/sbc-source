@@ -1,16 +1,16 @@
 # La chanson de Sakima
 
 ##
-Sakima vivait avec ses parents et sa petite sœur, qui avait quatre ans. Ils vivaient sur la terre d'un homme riche. Leur hutte à toit de chaume était située au bout d'un rang d'arbres. 
+Sakima vivait avec ses parents et sa petite sœur, qui avait quatre ans. Ils vivaient sur la terre d'un homme riche. Leur hutte à toit de chaume était située au bout d'un rang d'arbres.
 
 ##
-Quand Sakima avait trois ans, il est devenu malade et perdu sa vue. Sakima était un garçon avec beaucoup de talent. 
+Quand Sakima avait trois ans, il est devenu malade et perdu sa vue. Sakima était un garçon avec beaucoup de talent.
 
 ##
 Sakima faisait beaucoup de choses que d'autres garçons de six ans ne faisaient pas. Par exemple, il pouvait se tenir avec les membres plus âgés du village et discuter de questions importantes.
 
 ##
-Les parents de Sakima travaillaient chez l'homme riche. Ils quittaient leur maison tôt le matin et revenaient tard le soir. Sakima restaient seul chez eux avec sa petite sœur. 
+Les parents de Sakima travaillaient chez l'homme riche. Ils quittaient leur maison tôt le matin et revenaient tard le soir. Sakima restaient seul chez eux avec sa petite sœur.
 
 ##
 Sakima adorait chanter des chansons. Un jour sa mère lui demanda, « Où apprends-tu à chanter ces chansons, Sakima? »
@@ -19,28 +19,28 @@ Sakima adorait chanter des chansons. Un jour sa mère lui demanda, « Où appren
 Sakima répondit, « Elles me viennent tout simplement, maman. Je les entends dans ma tête et ensuite je chante. »
 
 ##
-Sakima aimait chanter pour sa petite sœur, surtout si elle avait faim. Sa sœur l'écoutait chanter sa chanson préférée. Elle se balançait en écoutant la chanson apaisante. 
+Sakima aimait chanter pour sa petite sœur, surtout si elle avait faim. Sa sœur l'écoutait chanter sa chanson préférée. Elle se balançait en écoutant la chanson apaisante.
 
 ##
 « Peux-tu la chanter encore et encore, Sakima? » sa sœur le suppliait. Sakima acceptait et la chantait encore et encore.
 
 ##
-Un soir quand ses parents sont revenus chez eux, ils étaient très tranquilles. Sakima savait qu'il y avait un problème. 
+Un soir quand ses parents sont revenus chez eux, ils étaient très tranquilles. Sakima savait qu'il y avait un problème.
 
 ##
 « Qu’est-ce qu'il y a, maman et papa? » Sakima demanda. Sakima apprit que le fils de l'homme riche était disparu. L'homme était très triste et seul.
 
 ##
-« Je peux chanter pour lui. Il redeviendra peut-être heureux, » Sakima dit à ses parents. Mes ses parents rejetèrent l'idée. « Il est très riche. Tu es seulement un garçon aveugle. Penses-tu vraiment que ta chanson l'aidera? » 
+« Je peux chanter pour lui. Il redeviendra peut-être heureux, » Sakima dit à ses parents. Mes ses parents rejetèrent l'idée. « Il est très riche. Tu es seulement un garçon aveugle. Penses-tu vraiment que ta chanson l'aidera? »
 
 ##
 Toutefois, Sakima ne démissionna pas. Sa petite sœur l'appuyait. Elle disait, « Les chansons de Sakima me calment quand j'ai faim. Elles calmeront l'homme riche aussi. »
 
 ##
-Le lendemain, Sakima demanda à sa petite sœur de le mener chez l'homme riche. 
+Le lendemain, Sakima demanda à sa petite sœur de le mener chez l'homme riche.
 
 ##
-Il se tint sous une grande fenêtre et commença à chanter sa chanson préférée. Lentement, la tête de l'homme riche apparu à travers la grande fenêtre. 
+Il se tint sous une grande fenêtre et commença à chanter sa chanson préférée. Lentement, la tête de l'homme riche apparu à travers la grande fenêtre.
 
 ##
 Les ouvriers arrêtèrent ce qu'ils faisaient. Ils écoutèrent la belle chanson de Sakima. Mais un homme dit, « Personne n'a été capable de consoler le patron. Est-ce que ce garçon aveugle pense qu'il pourra le consoler ? »
@@ -49,7 +49,7 @@ Les ouvriers arrêtèrent ce qu'ils faisaient. Ils écoutèrent la belle chanson
 Sakima termina de chanter sa chanson et s'apprêtait à partir. Mais l'homme riche sorti en vitesse et dit, « S'il te plait, chante encore. »
 
 ##
-À ce moment, deux hommes sont venus en apportant quelqu'un sur une civière. Ils avaient trouvé le fils de l'homme riche tabassé et abandonné sur le bord de la route.  
+À ce moment, deux hommes sont venus en apportant quelqu'un sur une civière. Ils avaient trouvé le fils de l'homme riche tabassé et abandonné sur le bord de la route.
 
 ##
 L'homme riche fut tellement content de revoir son fils. Il récompensa Sakima pour l'avoir consolé. Il emmena les deux garçons à l'hôpital pour que Sakima puisse retrouver sa vue.
@@ -58,5 +58,5 @@ L'homme riche fut tellement content de revoir son fils. Il récompensa Sakima po
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
-* Translation: Alexandra Danahy 
+* Translation: Alexandra Danahy
 * Language: fr
