@@ -6,7 +6,6 @@ Era uma vez um crocodilo faminto.
 ##
 Procurou por comida lenta e silenciosamente.
 
-##
 E depois…
 
 ##
