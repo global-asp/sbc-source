@@ -53,4 +53,4 @@ Hundi kenyaa sagalee tokkon iyyinee akan jenne, "Hardha irra jalqabnee waliwajji
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
 * Translation: Demoze Degefa 
-* Language: Oromo Langague
+* Language: om
