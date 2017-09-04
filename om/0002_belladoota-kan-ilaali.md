@@ -1,10 +1,10 @@
-# Belladoota Kan Ilaali
+# Belladoota kan ilaali
 
 ##
-Belladoota kan Ilaali.
+Belladoota kan ilaali.
 
 ##
-Saani tuni 'Moo' jetti.
+Saani tuni 'moo' jetti.
 
 ##
 Ra'een kuni 'me-ee' jedha.
