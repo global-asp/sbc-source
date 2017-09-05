@@ -23,4 +23,4 @@ Okkoteen nicacabdee. Ogummaaan suni nama hundaafu bilsaa ta'e. Namoonni haala ka
 * Text: Ghanaian folktale
 * Illustration: Wiehan de Jager
 * Translation: Demoze Degefa
-* Language: Oromo Language
+* Language: om
