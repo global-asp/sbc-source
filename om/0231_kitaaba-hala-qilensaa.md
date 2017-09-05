@@ -28,5 +28,5 @@ Ani sabbata waqaab argee.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Sandra McDougall
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

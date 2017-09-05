@@ -7,7 +7,7 @@ Bocca dinqisiisa kana kanagarte muccaayyo xinno tokko turte.
 Akka boccni suni itti dhihateen, dubartii ulfa gudda qabdu ta'uu ishee barame.
 
 ##
-Salffattu garu muccatin goota tate tuni gara dubartitti hiqixee akkan jetteen, "Dubarti tana walwajjiin turuu qabna," namooni ishes kana murtesan." Dubarti kanafi da'imaa ishees hala gariin tursisina".
+Salffattu garu muccatin goota tate tuni gara dubartitti hiqixee akkan jetteen, "Dubarti tana walwajjiin turuu qabna," namooni ishes kana murtesan." Dubarti kanafi da'imaa ishees hala gariin tursisina."
 
 ##
 Yerooma sani dam'immichi dhufe. "Dhibi!" "Uffta halkani fidaa!" "Bishan!" "Dhhhiiiiiiiiibaa!!!"
@@ -16,7 +16,7 @@ Yerooma sani dam'immichi dhufe. "Dhibi!" "Uffta halkani fidaa!" "Bishan!" "Dhhhi
 Yeroo da'imaa dhalate argan, namni martu nahee dubbati utale, "Harree?!"
 
 ##
-Namooni walmormuu calqaban, "Dubarti kanafii da'imma ishee akka garitti qabna jenne waliigallee jirra." Jedhe namooni tokko tokko. "Garu hiree badaa nutti fidu jedhu kunimo!".
+Namooni walmormuu calqaban, "Dubarti kanafii da'imma ishee akka garitti qabna jenne waliigallee jirra." Jedhe namooni tokko tokko. "Garu hiree badaa nutti fidu jedhu kunimo!"
 
 ##
 Dubartittin amma illee qophaa isshe taate. Da'imaa rakkisaa kana waangotuu walaaltee. Esse akka deemitu wallalte.
@@ -34,19 +34,19 @@ Harrichillee aarifi cinqaan sammu isaa haddoche. Hojii ittikenname tokko iyyu hi
 Harrichi bayee salfate. Hamma danda'ee tokko figichan faggate deeme.
 
 ##
-Yeroo inni figicha dhabu, halkan wantureef harreen kara bade. " Hii haaw" jedhe dukkanti iyye. " Hii haaw?" jedhe dukkani itti debisee. qophaa isaa ture. Otto figgu bolla kessati kufe.
+Yeroo inni figicha dhabu, halkan wantureef harreen kara bade. "Hii haaw," jedhe dukkanti iyye. "Hii haaw?" jedhe dukkani itti debisee. qophaa isaa ture. Otto figgu bolla kessati kufe.
 
 ##
-Harren olka'ee nama dulooma ija itti basu arge.Gara jarsa kana ilaale abdi xinno argate.
+Harren olka'ee nama dulooma ija itti basu arge. Gara jarsa kana ilaale abdi xinno argate.
 
 ##
-Harriche deeme jarsaa wan bayee isaa barsisee kan wajjiin jirachuf murtesse. Harrichis bayee dhagefate , barates . Walgargarin wajiin kolfaa jiratan.
+Harriche deeme jarsaa wan bayee isaa barsisee kan wajjiin jirachuf murtesse. Harrichis bayee dhagefate, barates. Walgargarin wajiin kolfaa jiratan.
 
 ##
 Guyyaa ganama tokko, jarsichi harreen akka gara gaara gubbaa baate isaa kahuu gaafate.
 
 ##
-Samii gubba yeroo gahan hiribin isaan fudhatee.Harrich abjuudhan harmeen isaa dhukubsachuu ishee arge. Kanaafu damaqee ka'ee...
+Samii gubba yeroo gahan hiribin isaan fudhatee. Harrich abjuudhan harmeen isaa dhukubsachuu ishee arge. Kanaafu damaqee ka'ee...
 
 ##
 Dummessi suni hiriyaa isaa wajjiin bade. Jarsaa wajjiinis bade.
@@ -64,5 +64,5 @@ Ilmooni harre tifi harmee isaa wajjiin guddatani walwajjiin nagan jiratan. Suuta
 * License: [CC-BY]
 * Text: Lindiwe Matshikiza
 * Illustration: Meghan Judge
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

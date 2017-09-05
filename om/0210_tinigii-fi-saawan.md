@@ -37,5 +37,5 @@ Dafani loo'an gara manaa galan.
 * License: [CC-BY]
 * Text: Ingrid Schechter
 * Illustration: Ingrid Schechter
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

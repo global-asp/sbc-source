@@ -28,5 +28,5 @@ Yeroon qullubbii ciruu ijii nihimimaan buusa.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Kathy Arbuckle
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

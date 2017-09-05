@@ -28,5 +28,5 @@ Teembaan refeensa isaa haadateera.
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
 * Illustration: Bronwen Heath
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

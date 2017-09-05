@@ -28,11 +28,11 @@ Lukkuun guyyaa tokko nafkenni' jettee risaa gafate. "Sana booda balli kee nitolf
 Yeroo risaan barii sana dhufu, lukkuun yeroo cirrachaa qoottu argite garuu lilimee hinarganne. Yeroom sani risaan dafee gadi balali'ee cicii tokkicha fundahte. Fudhatee ittin figide. Guyyaa sanirra calqabe lukkuun yomillee, essumattu taanan lukkuun lilmee barbacha lafa qotti.
 
 ##
-Akkumaa gaddisini risaa lafa irratti muldhateen, lukkuun ijoolee isheeti himiti. " Dafaati lafa qullaa kessa bahaa jettene. Isaanis akkan jedhan, "Nuti guyyaamiti. Nifiginna."
+Akkumaa gaddisini risaa lafa irratti muldhateen, lukkuun ijoolee isheeti himiti. "Dafaati lafa qullaa kessa bahaa," jettene. Isaanis akkan jedhan, "Nuti guyyaamiti. Nifiginna."
 
 ##
 * License: [CC-BY]
 * Text: Ann Nduku
 * Illustration: Wiehan de Jager
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

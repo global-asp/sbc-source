@@ -19,7 +19,7 @@ Hileetiin ibddaa barbaacha dhaqxee akkan jette ibbidaan, "Deemi, yeroo Roobiin b
 Boddee, Roobiin margaa laga fagooti dheeda yeroo ibbiddi "wuussh!" qabate. Ibbiddichis refeensa Roobii gubuu calqabae.
 
 ##
-Roobiin bowuu calqabadee garaa bishaani figide.  Rifeense ishee hunduu ibbiddan gubbate. Roobiin akkan jette, "Rifeensi koo ibbidda kanaan gubbate!Rifeense koo tokko hinhafnee! Rifeense bareedan koo!"
+Roobiin bowuu calqabadee garaa bishaani figide. Rifeense ishee hunduu ibbiddan gubbate. Roobiin akkan jette, "Rifeensi koo ibbidda kanaan gubbate!Rifeense koo tokko hinhafnee! Rifeense bareedan koo!"
 
 ##
 Rifeense Roobii waangubateef hileetin bayee gammadde. Hammaa hardhaatu Roobiin sodaa ibbiddatif jedhe bishaan irraa hinfagaatu.
@@ -28,5 +28,5 @@ Rifeense Roobii waangubateef hileetin bayee gammadde. Hammaa hardhaatu Roobiin s
 * License: [CC-BY]
 * Text: Basilio Gimo, David Ker
 * Illustration: Carol Liddiment
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

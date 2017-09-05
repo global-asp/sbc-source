@@ -19,7 +19,7 @@ Bishaan qabbana'a fi folii saamunan hinsodadhu.
 Harmeen, "ilkaan kee hindagatin nanjetti" Anis immo, "Lakki, gonkumayyu!"
 
 ##
-Saana boodaa akakkayuu fi aadaada koon  naga gaafadha.
+Saana boodaa akakkayuu fi aadaada koon naga gaafadha.
 
 ##
 Sanaa booda uffata kook nanufadha." Ani amma goddadheera harmee" jedhan.
@@ -40,5 +40,5 @@ Guyyaa hundaa wantoota garii kanan hojadha. Kessumaa garuu kubbaa milaa taphachu
 * License: [CC-BY]
 * Text: Michael Oguttu
 * Illustration: Vusi Malindi
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

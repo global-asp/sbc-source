@@ -16,7 +16,7 @@ Garuu namani tokkoyu muzii Tom hinbinne. Dubarti irraa bitu barbadan.
 Namonni akkan jedhu, "Ganda kenyyati dubartoota qofatu fudura gurgura." "Kuni nama akkamiti," jedhan gafatu.
 
 ##
-Hata'u malee Tom abdi hinkunne.Akkan jedhe, "Muzii kiyyaa bitaa! Muziin kiyyaa bayee mi'awadha!"
+Hata'u malee Tom abdi hinkunne. Akkan jedhe, "Muzii kiyyaa bitaa! Muziin kiyyaa bayee mi'awadha!"
 
 ##
 Dubarti tokko dhufte muzii abazza tokko olkafte sirriti xinxaltee.
@@ -40,5 +40,5 @@ Tom safaa mataa isaa gubbati baate gara mana deeme.
 * License: [CC-BY]
 * Text: Humphreys Odunga
 * Illustration: Zablon Alex Nguku
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

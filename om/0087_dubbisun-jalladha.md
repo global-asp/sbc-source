@@ -28,5 +28,5 @@ Eenyufi dubbisu? Ofii kootifin dubbisa!
 * License: [CC-BY]
 * Text: Letta Machoga
 * Illustration: Wiehan de Jager
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

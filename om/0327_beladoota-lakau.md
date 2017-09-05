@@ -28,5 +28,5 @@ Arbi tokko leencichaa waliin bishaan dhuga.
 * License: [CC-BY]
 * Text: Zanele Buthelezi, Thembani Dladla, Clare Verbeek
 * Illustration: Rob Owen
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

@@ -16,7 +16,7 @@ Guyyaa ittiaanu, manni barnoota dorgomii kubba milaa qaba ture. Leenjisaan garu 
 Andiiswaan figidee leenjisaan akka ishee tapha kessaa galchuu gaafate. Leenjisaan waan godhuu qabu garuu hinbarree. Boodee garu Andiiswaan akka sentee taphatu murteesee.
 
 ##
-Dorgomiin cimaa ture.Namni tokkoiyyu qaphxii hinargatin ture, hamma walkaa taphaati.
+Dorgomiin cimaa ture. Namni tokkoiyyu qaphxii hinargatin ture, hamma walkaa taphaati.
 
 ##
 Walkkaa taphaa irrati mucaan tokko kubbaa gara Andiiswaa dabarsee. Daftee kubbaa gara manneeti figidee. Kubbicha rukkutee garaa galchiiti galachite.
@@ -28,5 +28,5 @@ Namooni dorgommi ilaala turan bayee gammadan. Guyaa sanarra calqabee dubartonni 
 * License: [CC-BY-NC]
 * Text: Eden Daniels
 * Illustration: Eden Daniels
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

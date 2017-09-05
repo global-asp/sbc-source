@@ -25,13 +25,13 @@ Ganama tokko Simbagwayir hirribarra dafte hinka'iin turte. Aniitaanis, "Mucaayo 
 Simbagwayirn bayee aarte. Mana sana gadidhiiftee demuuf murteesite. Ufata halkani harmee isheetif nyaataa qabattee mana batee. Kara abban ishe demee dukka dhaqxee.
 
 ##
-Yeroo ittihalkana'u mukka dheeraa gubba korte damee isaatrati siree tolfate. Yeroo gara chiisichaa deemtu akaan jete wadeste;" ayyo, ayyo, ayyo na dhiftee dametee. Na dhiftee demetee, achuuman hafte. Abban koo nanajallatu kana booda. Harmee, yoom dhufta? Na dhifitee demetee? 
+Yeroo ittihalkana'u mukka dheeraa gubba korte damee isaatrati siree tolfate. Yeroo gara chiisichaa deemtu akaan jete wadeste;" ayyo, ayyo, ayyo na dhiftee dametee. Na dhiftee demetee, achuuman hafte. Abban koo nanajallatu kana booda. Harmee, yoom dhufta? Na dhifitee demetee?
 
 ##
 Gyyyaa itti aanu Simbagwayirn sirbaa sana irra debitee sirbtee. Dubartoonni laga sana bishaan waraaban sagalee ishee dhagahan. Sagaleen sunis sagalee mukaa itti fakkate chal jedhan. Ha ta'u malee dubartiin tokko sirrite dhaggeffatee turte.
 
 ##
-Dubartitin ol jete mukka ilaalte. Yeroo muccayofi uffata halkanii bareeda agartu akan jete, "Simbagwayi, muccaa obbolessa kooti". Dubartiin biraa immo uffata miccuu dhifitee Simbagwayi akka mukka irraa buutuu gargarte. Addaadan ishee muka irra bufitee, jajabesite.
+Dubartitin ol jete mukka ilaalte. Yeroo muccayofi uffata halkanii bareeda agartu akan jete, "Simbagwayi, muccaa obbolessa kooti." Dubartiin biraa immo uffata miccuu dhifitee Simbagwayi akka mukka irraa buutuu gargarte. Addaadan ishee muka irra bufitee, jajabesite.
 
 ##
 Addaadan Simbagwayi mana isheeti fudhatee. Simbagwayifis nyaata o'aa keennitefi ciree gubba ishee rafiste. Halkan san Simbagwayi boyichaan gara chisichaa dhaqxee. Ha ta'u male boyyicha kessi gammachudah. Addaada ishee akkan ishee kunistu nibekiti turte.
@@ -52,5 +52,5 @@ Torbaan itti anuu Aniitaan Simbagwayi, durbi fi addaada ishee laaqan afferte. Qo
 * License: [CC-BY]
 * Text: Rukia Nantale
 * Illustration: Benjamin Mitchley
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

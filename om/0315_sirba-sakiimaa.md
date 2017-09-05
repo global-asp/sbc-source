@@ -4,13 +4,13 @@
 Sakiimaan warra isaatifi obbolette isaa ishee waggan afuri walin jirata. lafa namaa soressa tokko gubbaa jiratan. Manii citaa isaani mukkenin marfamtee jiriti.
 
 ##
-Yeroo umriin Sakiimaa waggaa sidi ta'e kufee iji isaa jaame.Sakiimaan mucaa jimaa ture.
+Yeroo umriin Sakiimaa waggaa sidi ta'e kufee iji isaa jaame. Sakiimaan mucaa jimaa ture.
 
 ##
-Sakiimaan hojii  bayee warri wagga jahaa hihojjane hojata.Fakeenyaaf, maanggudootii ganda wajjiin taa'e dhimaa cimaa irrati nimari'ata.
+Sakiimaan hojii bayee warri wagga jahaa hihojjane hojata. Fakeenyaaf, maanggudootii ganda wajjiin taa'e dhimaa cimaa irrati nimari'ata.
 
 ##
-Matiin Sakiimaa mana nama sorressaa kessa  hojaatan.Isaanis ganamaan bahanii galgal galu. Sakiimaa obboleti isaa wajjiin manatti dhisanii deeman.
+Matiin Sakiimaa mana nama sorressaa kessa hojaatan. Isaanis ganamaan bahanii galgal galu. Sakiimaa obboleti isaa wajjiin manatti dhisanii deeman.
 
 ##
 Sakiimaan sirba sirbu jalata. Gaftokko harmeen isaa akkan jete isa gafatte. "Sakiimaa sirboota kana isaa barratee?"
@@ -34,10 +34,10 @@ Galgala tokko warri isaa gara manaa deebi'anii, cal jedhanii ta'an. Sakiimaan wa
 Sakiimaanis "Ani sirbuuf nandanada'a innis nigamada," jedhe warra isaati hime. Garuu warri isaa yadaa kana hinfudhanne, "Inni bayee soressa. Ati mucaa jamaa dha. Siribi kee waan isan gargaaru sittifakkataa?"
 
 ##
-Hata'uu malee, Sakiimaan shakkali isaa ittumma fufee. Obbolettin quxussun isaas isaa gargaarte. Akkam jette, " siribi Sakiimaa yeroon anigadee  bayee nagaragar. Haluma kanan nama soressa kanas nigargaara."
+Hata'uu malee, Sakiimaan shakkali isaa ittumma fufee. Obbolettin quxussun isaas isaa gargaarte. Akkam jette, "siribi Sakiimaa yeroon anigadee bayee nagaragar. Haluma kanan nama soressa kanas nigargaara."
 
 ##
-Guyyaa ittianu, Sakiimaan obbolettin isaa gara mana  namtichaa soressa  itti agarsiistu gafatee.
+Guyyaa ittianu, Sakiimaan obbolettin isaa gara mana namtichaa soressa itti agarsiistu gafatee.
 
 ##
 Foddaa guddaa tokko jala dhaabatee sirbuu calqaabe. Suuta jedhe mataan namtichaa soressa gara foddaati muldhatee.
@@ -58,5 +58,5 @@ Namni soressi sun mucaan isaa agrachuu isaatin bayee gammadee. Sakiimman wan isa
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Peris Wachuka
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

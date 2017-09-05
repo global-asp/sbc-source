@@ -16,7 +16,7 @@ Ijooleen bayeen mana barumsaa kessaa harca'uu.
 Shaamareen mana namaa biraati aka hojatuti qaxaramanii ganda biraati hojatu.
 
 ##
-Dargagonni immo nannoo ganda olgadi demo ; kaaneen  namaf qotu.
+Dargagonni immo nannoo ganda olgadi demo; kaaneen namaf qotu.
 
 ##
 Yeroo bubben ka'u warqaa fi balfi garagaraa dallaafi mukken irrati tuluma.
@@ -46,11 +46,11 @@ Dubartiin tokko akan jete, "Duburatonni kun nawajjiin gamtofeene midhaan facaasu
 "Dubartiin biraa olkatee akan jete," namooni dhiira immo bolla yaqotan.
 
 ##
-Hundi kenyaa sagalee tokkon iyyinee akan jenne, "Hardha irra jalqabnee waliwajjiin hijachuun rakko keyna hikinee".
+Hundi kenyaa sagalee tokkon iyyinee akan jenne, "Hardha irra jalqabnee waliwajjiin hijachuun rakko keyna hikinee."
 
 ##
 * License: [CC-BY]
 * Text: Ursula Nafula
 * Illustration: Vusi Malindi
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

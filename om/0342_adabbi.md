@@ -40,5 +40,5 @@ Boodee, Rahiim dhifamaa nugaafate. "Ani lammata sassatu hinta'u," jedhe waada ga
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

@@ -4,7 +4,7 @@
 Yeroo tokko naacha bela'aa tokkotu ture.
 
 ##
-Suuta jedhe nyaata barabadaa ture... 
+Suuta jedhe nyaata barabadaa ture...
 
 ##
 Powoo!!! jedhe!
@@ -19,5 +19,5 @@ Hamma yeroo biraa bela'utti.
 * License: [CC-BY]
 * Text: Christian G.
 * Illustration: Wiehan de Jager
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om

@@ -28,5 +28,5 @@ Qotee bulaan kuni 'ohuu' jedha.
 * License: [CC-BY-NC]
 * Text: Jenny Katz
 * Illustration: Sandy Campbell
-* Translation: Demoze Degefa 
+* Translation: Demoze Degefa
 * Language: om
