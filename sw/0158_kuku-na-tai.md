@@ -13,7 +13,7 @@ Baada ya kupata usingizi mzuri wa usiku, Kuku alipata wazo zuri. Akaanza kukusan
 Tai pekee ndiye aliekuwa na sindano kijijini, kwahiyo akaanza kushona wa kwanza. Akajitengenezea mabawa mawili mazuri na akapaa juu ya kuku. Kuku aliazima sindano ila akachoka kushona. Akaacha sindano kabatini akaenda jikoni kuandaa chakula kwa ajili ya watoto wake.
 
 ##
-Lakini ndege wengine walimwona Tai akipaa. Wakamwomba kuku awaazime sindano ili nao wajishonee mbawa. Muda si mrefu ndege wakawa  wamepaa na kuzagaa anga zima.
+Lakini ndege wengine walimwona Tai akipaa. Wakamwomba kuku awaazime sindano ili nao wajishonee mbawa. Muda si mrefu ndege wakawa wamepaa na kuzagaa anga zima.
 
 ##
 Ndege wa mwisho aliporudisha sindano aliyo azima, kuku hakuwepo. Watoto wa kuku wakachukua sindano na wakaanza kuichezea. Walipochoka wakaicha sindano kwenye mchanga.

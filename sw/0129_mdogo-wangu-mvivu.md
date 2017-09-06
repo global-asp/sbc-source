@@ -19,7 +19,8 @@ Ninafagia sakafu.
 Naosha vyombo.
 
 ##
-Kwanini nafanya kazi kwa bidii... ... Ilihali mdogo wangu anacheza?
+Kwanini nafanya kazi kwa bidii...
+... Ilihali mdogo wangu anacheza?
 
 ##
 * License: [CC-BY-NC]

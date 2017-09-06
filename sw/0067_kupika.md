@@ -1,28 +1,28 @@
 # Kupika
 
 ##
-Nina menya viazi
+Nina menya viazi.
 
 ##
-Nakatakata kabichi
+Nakatakata kabichi.
 
 ##
-Nasaga karoti
+Nasaga karoti.
 
 ##
-Naosha maharage
+Naosha maharage.
 
 ##
-Nakata mbegu za maboga
+Nakata mbegu za maboga.
 
 ##
-Nakatakata sukuma wiki
+Nakatakata sukuma wiki.
 
 ##
-Mama yangu anakatakata vitunguu
+Mama yangu anakatakata vitunguu.
 
 ##
-Vitunguu hunifanya nilie vikiwa vinakatwakatwa
+Vitunguu hunifanya nilie vikiwa vinakatwakatwa.
 
 ##
 * License: [CC-BY-NC]

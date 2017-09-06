@@ -1,7 +1,7 @@
 # Zama ni mkubwa
 
 ##
-Mdogo wangu anachelewa kulala. Naamka mapema kwasababu mimi ni mkubwa
+Mdogo wangu anachelewa kulala. Naamka mapema kwasababu mimi ni mkubwa.
 
 ##
 Mimi ndiye ninaye ruhusu jua kuingia ndani.

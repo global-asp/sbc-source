@@ -1,25 +1,25 @@
 # Unafanya nini?
 
 ##
-Nina imba
+Nina imba.
 
 ##
-Anapunga mkono
+Anapunga mkono.
 
 ##
-Nina piga makofi
+Nina piga makofi.
 
 ##
-Anajinyoosha
+Anajinyoosha.
 
 ##
-Anaita
+Anaita.
 
 ##
-Nina itika
+Nina itika.
 
 ##
-Anasikiliza
+Anasikiliza.
 
 ##
 Unafanya nini?
