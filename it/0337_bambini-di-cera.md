@@ -1,16 +1,16 @@
-# Bambini di Cera.
+# Bambini di Cera
 
 ##
-C'era una volta una famiglia che viveva felice
+C'era una volta una famiglia che viveva felice.
 
 ##
-Non litigavano mai fra di loro. I bambini aiutavano i loro genitori a casa e nei campi
+Non litigavano mai fra di loro. I bambini aiutavano i loro genitori a casa e nei campi.
 
 ##
 Ma non erano autorizzati ad avvicinarsi al fuoco.
 
 ##
-Dovevano fare tutti i loro lavori durante la notte. Perchè erano fatti di cera!
+Dovevano fare tutti i loro lavori durante la notte. Perché erano fatti di cera!
 
 ##
 Ma uno dei ragazzi sognava di uscire fuori alla luce del sole.

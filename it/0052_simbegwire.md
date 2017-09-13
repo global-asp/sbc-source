@@ -13,7 +13,7 @@ Un giorno, il papà di Simbegwire tornò a casa più tardi del solito. "Dove sei
 La vita di Simbegwire cambiò. Non aveva più tempo di sedersi con suo padre le mattine. Anita le dava così tante faccende di casa da fare che era sempre troppo stanca per fare i compiti la sera. Andava dritta a letto dopo cena. Il suo unico conforto era la copertina colorata che sua madre le diede. Il papà di Simbegwire non sembrava notare che sua figlia era infelice.
 
 ##
-Dopo alcuni mesi, il papà di Simbewire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse:" Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
+Dopo alcuni mesi, il papà di Simbegwire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse:" Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
 
 ##
 Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, Anita la picchiava. A cena, la donna mangia gran parte del cibo, lasciando a Simbegwire solo alcuni avanzi. Ogni notte Simbegwire piangeva fino ad addormentarsi, abbracciando la copertina della mamma.
@@ -22,7 +22,7 @@ Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, A
 Una mattina, Simbegwire era ancora a letto, in ritardo. "Razza di pigrona!" Gridò Anita. Tirò Simbegwire fuori dal letto. La copertina preziosa si impigliò in un chiodo e si strappò in due pezzi.
 
 ##
-Simbegwire era molto triste. Decise di scappare via di casa. Prese con sé i pezzi della copertina di sua madre, impacchettò un po' di cibo e andò via. Seguì la strada che suo padre prese quando andò via
+Simbegwire era molto triste. Decise di scappare via di casa. Prese con sé i pezzi della copertina di sua madre, impacchettò un po' di cibo e andò via. Seguì la strada che suo padre prese quando andò via.
 
 ##
 Quando la notte arrivò, si arrampicò su un albero alto, vicino ad un ruscello e si costruì un letto con i rami. Prima di addormentarsi, cantò: "Maamma, maamma, maamma, mi hai lasciato. Mi hai lasciato e non sei mai più tornata. Papà non mi vuole più bene. Mamma quando torni? mi hai lasciato."
