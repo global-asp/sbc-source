@@ -1,4 +1,4 @@
-# Guyyan gara magaala deeme.
+# Guyyan gara magaala deeme
 
 ##
 Bakki dhabbata atobusaa xinnan ganda kenyaa namafi konkolatootan dhiphatee jira. Kanarra hafee wanti fe'amu qabu bayee tu lafa jira. Namooni tikeeti gurguran konkolatoota iyyan.
