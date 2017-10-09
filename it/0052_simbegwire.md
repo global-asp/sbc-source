@@ -13,7 +13,7 @@ Un giorno, il papà di Simbegwire tornò a casa più tardi del solito. "Dove sei
 La vita di Simbegwire cambiò. Non aveva più tempo di sedersi con suo padre le mattine. Anita le dava così tante faccende di casa da fare che era sempre troppo stanca per fare i compiti la sera. Andava dritta a letto dopo cena. Il suo unico conforto era la copertina colorata che sua madre le diede. Il papà di Simbegwire non sembrava notare che sua figlia fosse infelice.
 
 ##
-Dopo alcuni mesi, il papà di Simbegwire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse:" Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
+Dopo alcuni mesi, il papà di Simbegwire disse loro che sarebbe stato via di casa per un po'. "Devo viaggiare per lavoro" Disse: "Ma so che vi prenderete cura l'una dell'altra." Simbegwire aveva un' espressione triste ma suo padre non la notò. Anita non disse nulla, non era felice nemmeno lei.
 
 ##
 Le cose peggiorarono per Simbegwire. Se non finiva le faccende o si lamentava, Anita la picchiava. A cena la donna mangiava gran parte del cibo, lasciando a Simbegwire solo alcuni avanzi. Ogni notte Simbegwire piangeva fino ad addormentarsi, abbracciando la copertina della mamma.
@@ -37,13 +37,13 @@ La donna guardò sull'albero. Quando vide la bambina e pezzi della coperta color
 La zia di Simbegwire portò la bambina a casa con sé. Diede a Simbegwire cibo caldo e le rimboccò le coperte a letto lasciandole la copertina della mamma. Quella notte, Simbegwire pianse quando andò a letto. Ma erano lacrime di sollievo. Sapeva che sua zia si sarebbe presa cura di lei.
 
 ##
-Quando il padre di Simbegwire tornò a casa, trovo la sua cameretta vuota. "Cosa è successo Anita?" Chiese con il cuore pesante. La donna spiegò che Simbegwire era scappata via. " Volevo che mi rispettasse"  Disse. "Ma forse sono stata troppo severa." Il papà di Simbegwire lasciò casa e andò in direzione del ruscello. Raggiunse il villaggio della sorella e scoprì che lei aveva visto Simbegwire.
+Quando il padre di Simbegwire tornò a casa, trovo la sua cameretta vuota. "Cosa è successo Anita?" Chiese con il cuore pesante. La donna spiegò che Simbegwire era scappata via. "Volevo che mi rispettasse" Disse. "Ma forse sono stata troppo severa." Il papà di Simbegwire lasciò casa e andò in direzione del ruscello. Raggiunse il villaggio della sorella e scoprì che lei aveva visto Simbegwire.
 
 ##
-Simbegwire stava giocando con i suoi cuginetti quando vide suo padre da lontano. Aveva paura che fosse arrabbiato, quindi corse in casa per nascondersi. Ma il padre andò da lei e le disse "Simbegwire, tu hai trovato la madre perfetta per te. Una che ti ama e ti capisce. Sono fiero di  te e ti voglio bene." Concordarono che Simbegwire sarebbe rimasta con sua zia per quanto avrebbe voluto.
+Simbegwire stava giocando con i suoi cuginetti quando vide suo padre da lontano. Aveva paura che fosse arrabbiato, quindi corse in casa per nascondersi. Ma il padre andò da lei e le disse "Simbegwire, tu hai trovato la madre perfetta per te. Una che ti ama e ti capisce. Sono fiero di te e ti voglio bene." Concordarono che Simbegwire sarebbe rimasta con sua zia per quanto avrebbe voluto.
 
 ##
-Suo padre la visitò ogni giorno. Una volta venne con Anita. Lei prese la mano di Simbegwire. "Ti chiedo scusa piccolina, mi sbagliavo." Pianse "Mi daresti un'altra possibilità?" Simbegwire guardò suo padre e la sua faccia preoccupata. Poi, lentamente, fece un passo verso Anita e la abbracciò.
+Suo padre la visitò ogni giorno. Una volta venne con Anita. Lei prese la mano di Simbegwire. "Ti chiedo scusa piccolina, mi sbagliavo," pianse. "Mi daresti un'altra possibilità?" Simbegwire guardò suo padre e la sua faccia preoccupata. Poi, lentamente, fece un passo verso Anita e la abbracciò.
 
 ##
 La settimana seguente, Anita invitò Simbegwire a casa, insieme a sua zia e i suoi cugini, per una cena. Che festa! Anita preparò tutte le pietanze preferite di Simbegwire e tutti mangiarono a sazietà. Dopo, i bambini giocavano mentre i grandi parlavano. Simbegwire si sentì felice e coraggiosa. Decise che presto, molto presto, sarebbe tornata a casa per vivere con suo padre e la sua matrigna.
