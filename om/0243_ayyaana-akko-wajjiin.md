@@ -3,7 +3,6 @@
 ##
 Odongo fi Apiyoon abba isaani wajjiin magaala kessa jiraatu. Ayyaana dhufa jiruu hawwidhan eeggachaa turan. Manni barumsaa waan cufamef oto hinta'in akkoo isaani bira waandemanif. Akkoon isaanis lafa qurxxumin itti argamu haroo tokko bira jiratan.
 
-
 ##
 Odongo fi Apiyon bayee gammadan sabaaban isaas akkoo isaani wanargatanif. Guyyaa tokko dura imala gara ganda ishee godhamuf qopha'an. Hirribnis oto isan hinfudhatin halkan guutuu wa'ee ayyannichaa hasa'a bulan.
 
@@ -15,7 +14,6 @@ Yeroo muraasa booda hirribini isaan fudhatee rafan.
 
 ##
 Yeroo gandaa gahan abban isaani hirribarra isan kaase. Yeroo ganda sana gahan Akkoon isaani Nyar-Kanyadan muka jala afaa afatee ciiftee jirti. Nyar-Kanyada jechuun itaala ummata Kaynada jechuu dha. Dubarti barredu fi cimtuu turtee.
-
 
 ##
 Nyar-Kanyadan sibaafi gammachuudhan isaan fudhaate. Akkakileen ishees kennaa magaalaa irra fidan kan akkoo isaanitif laatudhaf baye gammadan. "Dura kennaa ko banaa jette Odongon." "Lakki kiyya duraa banaa," jedhee Apiyoon.
