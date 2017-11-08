@@ -1,7 +1,7 @@
 # Kuku na Tai
 
 ##
-Hapo zamani za kale, Kuku na Tai walikuwa marafiki.Waliishi kwa amani na ndege wengine. Hakuna kati yao aliyeweza kupaa.
+Hapo zamani za kale, Kuku na Tai walikuwa marafiki. Waliishi kwa amani na ndege wengine. Hakuna kati yao aliyeweza kupaa.
 
 ##
 Kuna siku njaa ilitokea. Ikamulazimu Tai kutembea umbali mrefu kutafuta chakula. Alirudi akiwa amechoka sana. "Lazima kuwe na njia rahisi ya kusafiri!" alisema Tai.

@@ -22,7 +22,7 @@ Baadaye, Kiboko alikuwa akila majani mbali na mto, alipo shtuka moto umelipuka. 
 Kiboko akaanza kulia na kukimbilia kwenye maji. Nywele zake zote zilikuwa zimeungua na moto. Kiboko aliendelea kulia, "Nywele zangu zimeingua na moto! Nywele zangu zote zimeondoka! Nywele zangu nzuri!"
 
 ##
-Sungura allikuwa na furaha kwakuwa nywele za Kiboko ziliungua. Hadi leo kwa kuogopa moto , Kiboko hawezi kwenda mbali na maji.
+Sungura allikuwa na furaha kwakuwa nywele za Kiboko ziliungua. Hadi leo kwa kuogopa moto, Kiboko hawezi kwenda mbali na maji.
 
 ##
 * License: [CC-BY]

@@ -10,7 +10,7 @@ Guyyaa ho'aa waantureef bishan daakuf gara lagaa deeman. Bishaan daakaa, walti n
 Akka tasaa akka guyyaa ta'ee baran. Daddafanii gara qayee isaani deebi'an.
 
 ##
-Yeroo gara maanatti dhihatan Noziibele harkaa ishee mormaratti kayyachuu ishee argan. Amartii morma ishee gatte turte!. "Adaraa nawajjiin dubbati debi'aa" jette isaan kadhatte. Garuu hiriyyoni ishee yeroon barbacha akka darbee ittihiman.
+Yeroo gara maanatti dhihatan Noziibele harkaa ishee mormaratti kayyachuu ishee argan. Amartii morma ishee gatte turte! "Adaraa nawajjiin dubbati debi'aa" jette isaan kadhatte. Garuu hiriyyoni ishee yeroon barbacha akka darbee ittihiman.
 
 ##
 Kanaafu Noziibelen gara laggati deebite. Amaarti ishee argatee jennan gara mana dafte galatee. Garu dukkanni ishee karairra dhoske.

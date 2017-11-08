@@ -19,7 +19,7 @@ Naweza kuvumilia maji ya baridi na harufu nzuri ya sabuni ya bluu.
 Mama ananikumbusha, "Usihashau kupiga mswaki." Namjibu, "Kamwe, labda sio mim!"
 
 ##
-Baada ya kuoga , nawasalimia babu na shangazi, na kuwatakia siku njema.
+Baada ya kuoga, nawasalimia babu na shangazi, na kuwatakia siku njema.
 
 ##
 Najivisha nguo mwenyewe, "Mimi ni mkubwa sasa mama," Nina mwambia.
