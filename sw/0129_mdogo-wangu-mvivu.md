@@ -1,26 +1,27 @@
 # Mdogo wangu mvivu
 
 ##
-Nina amka na kuwasha moto.
+Ninaamka na kuwasha moto.
 
 ##
-Nachemsha maji.
+Ninachemsha maji.
 
 ##
 Ninakata kuni.
 
 ##
-Nina koroga kwenye chungu.
+Ninakoroga uji kwenye chungu.
 
 ##
 Ninafagia sakafu.
 
 ##
-Naosha vyombo.
+Ninaosha vyombo.
 
 ##
-Kwanini nafanya kazi kwa bidii...
-... Ilihali mdogo wangu anacheza?
+Kwa nini ninafanya kazi kwa bidii …
+
+… wakati mdogo wangu anacheza?
 
 ##
 * License: [CC-BY-NC]

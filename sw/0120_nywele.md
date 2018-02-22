@@ -7,7 +7,7 @@ Thuli ana nywele fupi.
 Anna ana nywele ndefu.
 
 ##
-Kate ana nywele ndefu kuliko wote.
+Cathy ana nywele ndefu kuliko wote.
 
 ##
 Zama amesuka nywele zake.
@@ -22,7 +22,7 @@ Zanele amechana nywele zake.
 Thabo amenyoa nywele zake.
 
 ##
-Themba umenyoa kipara.
+Themba amenyoa kipara.
 
 ##
 * License: [CC-BY-NC]

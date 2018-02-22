@@ -1,40 +1,40 @@
-# Zama ni mkubwa
+# Zama ni mkubwa!
 
 ##
-Mdogo wangu anachelewa kulala. Naamka mapema kwasababu mimi ni mkubwa.
+Mdogo wangu anachelewa kuamka. Mimi naamka mapema kwa sababu mimi ni mkubwa!
 
 ##
-Mimi ndiye ninaye ruhusu jua kuingia ndani.
+Mimi ndiye ninayeruhusu jua kuingia ndani.
 
 ##
-"Wewe ni nyota yangu ya asubuhi," anasema mama.
+"Wewe ni nyota wangu wa asubuhi," anasema mama.
 
 ##
 Naoga mwenyewe, sihitaji msaada.
 
 ##
-Naweza kuvumilia maji ya baridi na harufu nzuri ya sabuni ya bluu.
+Naweza kustahimili maji ya baridi na sabuni ya bluu inayonuka.
 
 ##
-Mama ananikumbusha, "Usihashau kupiga mswaki." Namjibu, "Kamwe, labda sio mim!"
+Mama ananikumbusha, "Usisahau kupiga mswaki." Namjibu, "Kamwe, sio mimi!"
 
 ##
-Baada ya kuoga, nawasalimia babu na shangazi, na kuwatakia siku njema.
+Baada ya kuoga, nawasalimu babu na shangazi, na kuwatakia siku njema.
 
 ##
-Najivisha nguo mwenyewe, "Mimi ni mkubwa sasa mama," Nina mwambia.
+Najivisha nguo mwenyewe. "Mimi ni mkubwa sasa mama," ninamwambia.
 
 ##
 Ninaweza kufunga vishikizo na kurekebisha viatu vyangu.
 
 ##
-Na ninahakikisha mdogo wangu anapata habari zote za shule.
+Na ninahakikisha mdogo wangu anapata taarifa zote za shule.
 
 ##
-Darasani najitahidi sana.
+Darasani najitahidi sana katika kila kitu.
 
 ##
-Ninafanya hivi vitu vyote vizuri kila siku, ila kitu ninacho kipenda sana ni kucheza na kucheza.
+Ninafanya hivi vitu vyote vizuri kila siku. Ila kitu ninachokipenda sana ni kucheza na kucheza.
 
 ##
 * License: [CC-BY]

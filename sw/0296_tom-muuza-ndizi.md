@@ -1,19 +1,19 @@
 # Tom muuza ndizi
 
 ##
-Tom anabeba tenga la ndizi zilizo iva.
+Tom anabeba tenga la ndizi zilizoiva.
 
 ##
-Tom anenda sokoni kuuza ndizi.
+Tom anaenda sokoni kuuza ndizi.
 
 ##
-Sokoni watu wana nunua matunda.
+Sokoni watu wananunua matunda.
 
 ##
-Hakuna anaye nunua ndizi za Tom. Wanapenda kununua ndizi kutoka kwa akina mama.
+Hakuna anayenunua ndizi za Tom. Wanapenda kununua ndizi kutoka kwa akina mama.
 
 ##
-"Kwenye jamii yetu, ni wanawake pekee ndio wanaouza matunda," watu wanasema. "Ni mwanaume wa aina gani huyu?" watu wanahoji.
+"Kwenye jamii yetu, ni wanawake pekee ndio wanaouza matunda," watu wanasema. "Ni mwanamume wa aina gani huyu?" watu wanahoji.
 
 ##
 Lakini Tom hakati tamaa. Anaita, "Nunua ndizi zangu! Nunueni ndizi zangu tamu!"
@@ -31,7 +31,7 @@ Watu wengi wanakuja kwenye kichanja. Wananunua ndizi za Tom na kuzila.
 Mara, tenga linakuwa tupu. Tom anahesabu pesa alizopata.
 
 ##
-Tom ananunua sabauni, sukari, na mkate. Anaweka vitu kwenye tenga lake.
+Tom ananunua sabuni, sukari, na mkate. Anaweka vitu kwenye tenga lake.
 
 ##
 Tom anajitwisha tenga kichwani na kwenda nyumbani.

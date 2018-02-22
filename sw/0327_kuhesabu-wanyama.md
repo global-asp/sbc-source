@@ -1,7 +1,7 @@
 # Kuhesabu wanyama
 
 ##
-Tembo mmoja nakwenda kunywa maji.
+Tembo mmoja anakwenda kunywa maji.
 
 ##
 Twiga wawili wanaenda kunywa maji.
@@ -19,7 +19,7 @@ Punda milia saba wanakimbia kuelekea kwenye maji.
 Vyura wanane na samaki tisa wanaogelea kwenye maji.
 
 ##
-Simba mmoja ananguruma. Naye anataka kunywa maji. Nani anamwogopa simba?
+Simba mmoja anahuguruma. Naye anataka kunywa maji. Nani anamwogopa simba?
 
 ##
 Tembo mmoja anakunywa maji na simba.

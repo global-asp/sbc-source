@@ -1,4 +1,4 @@
-# Tingi na Ng'ombe
+# Tingi na ng'ombe
 
 ##
 Tingi aliishi na bibi yake.
@@ -28,7 +28,7 @@ Bibi alimficha Tingi chini ya matawi ya mti.
 Mwanajeshi mmoja alimkanyaga, lakini akanyamaza kimya.
 
 ##
-Wanajeshi walipo ondoka Tingi na bibi yake wakajitokeza.
+Wanajeshi walipoondoka Tingi na bibi yake wakajitokeza.
 
 ##
 Wakajikongoja kimya kimya kurudi nyumbani.

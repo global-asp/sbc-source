@@ -1,22 +1,22 @@
 # Kupika
 
 ##
-Nina menya viazi.
+Ninamenya viazi.
 
 ##
-Nakatakata kabichi.
+Ninakatakata kabichi.
 
 ##
-Nasaga karoti.
+Ninasaga karoti.
 
 ##
-Naosha maharage.
+Ninaosha maharagwe.
 
 ##
-Nakata mbegu za maboga.
+Ninakata mbegu za maboga.
 
 ##
-Nakatakata sukuma wiki.
+Ninakatakata sukuma-wiki.
 
 ##
 Mama yangu anakatakata vitunguu.

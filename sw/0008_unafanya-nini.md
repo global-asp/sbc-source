@@ -1,13 +1,13 @@
 # Unafanya nini?
 
 ##
-Nina imba.
+Ninaimba.
 
 ##
 Anapunga mkono.
 
 ##
-Nina piga makofi.
+Ninapiga makofi.
 
 ##
 Anajinyoosha.
@@ -16,13 +16,13 @@ Anajinyoosha.
 Anaita.
 
 ##
-Nina itika.
+Ninaitika.
 
 ##
 Anasikiliza.
 
 ##
-Unafanya nini?
+Wewe unafanya nini?
 
 ##
 * License: [CC-BY]

@@ -13,7 +13,7 @@ Wakaamua kupigiana penati. Jongoo akaenda golini. Kuku alifunga goli moja pekee.
 Jongoo alipiga mpira na akafunga. Jongoo akapiga chenga akafunga. Jongoo akapiga kichwa na akafunga. Jongoo akafunga magoli matano.
 
 ##
-Kuku akakasirika kuwa amefungwa. Alifungwa vibaya sana. Jongoo akaanza kucheka kwasababu rafiki yake alikuwa ana lalamika.
+Kuku akakasirika kuwa amefungwa. Alifungwa vibaya sana. Jongoo akaanza kucheka kwa sababu rafiki yake alikuwa analalamika.
 
 ##
 Kuku alipatwa na hasira akafungua mdomo wake mkubwa na akammeza Jongoo.
@@ -31,7 +31,7 @@ Mama Jongoo alipiga kelele, "Tumia nguvu yako ya kipekee mwanangu!" Jongoo anawe
 Kuku akabeuwa. Akameza mate na kutema. Alafu akapiga chafya na kukohoa. Akakohoa tena. Jongoo alimfanya ajisikie vibaya.
 
 ##
-Kuku alikohoa, hadi akamtema jongoo aliyekuwa tumboni kwakwe. Mama Jongoo na mwanae wakakwea mti kujificha.
+Kuku alikohoa, hadi akamtema jongoo aliyekuwa tumboni mwake. Mama Jongoo na mwanae wakakwea mti kujificha.
 
 ##
 Kuanzia wakati huo hadi leo hii Kuku na Jongoo ni maadui.

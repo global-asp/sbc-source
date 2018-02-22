@@ -6,22 +6,22 @@ Mikono miwili midogo ya kushika.
 ##
 
 ##
-Miguu miwili midogo kupiga teke.
+Miguu miwili midogo ya kupiga mateke.
 
 ##
 
 ##
-Macho mawili madogo kuona.
+Macho mawili madogo ya kuonea.
 
 ##
 
 ##
-Masikio mawili madogo kusikia.
+Masikio mawili madogo ya kufanya nisikie.
 
 ##
 
 ##
-Na mikono miwili KUKUMBATIA kwa upendo.
+Na mikono miwili ya KUKUMBATIA kwa upendo.
 
 ##
 
