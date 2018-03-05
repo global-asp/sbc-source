@@ -16,13 +16,13 @@ Wakawachukua ng'ombe.
 Tingi na bibi yake walikimbia na kujificha.
 
 ##
-Walijificha vichakani hadi usiku.
+Walijificha kichakani hadi usiku.
 
 ##
 Wanajeshi walirudi tena.
 
 ##
-Bibi alimficha Tingi chini ya matawi ya mti.
+Bibi alimficha Tingi chini ya majani.
 
 ##
 Mwanajeshi mmoja alimkanyaga, lakini akanyamaza kimya.

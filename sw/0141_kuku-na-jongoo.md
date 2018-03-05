@@ -10,31 +10,31 @@ Wakaenda uwanjani na wakaanza kucheza. Kuku alikuwa na kasi ila Jongoo alikuwa n
 Wakaamua kupigiana penati. Jongoo akaenda golini. Kuku alifunga goli moja pekee. Ikawa zamu ya kuku kwenda golini.
 
 ##
-Jongoo alipiga mpira na akafunga. Jongoo akapiga chenga akafunga. Jongoo akapiga kichwa na akafunga. Jongoo akafunga magoli matano.
+Jongoo alipiga mpira akafunga. Jongoo akapiga chenga akafunga. Jongoo akapiga kichwa akafunga. Jongoo akafunga magoli matano.
 
 ##
-Kuku akakasirika kuwa amefungwa. Alifungwa vibaya sana. Jongoo akaanza kucheka kwa sababu rafiki yake alikuwa analalamika.
+Kuku akakasirika kwa kuwa amefungwa. Hakuwa mshindani mzuri. Jongoo akaanza kucheka kwa sababu rafiki yake alikuwa analalamika.
 
 ##
-Kuku alipatwa na hasira akafungua mdomo wake mkubwa na akammeza Jongoo.
+Kuku alipatwa na hasira kiasi kwamba akafungua mdomo wake mkubwa na akammeza Jongoo.
 
 ##
-Kuku alipokuwa anarudi nyumbani alikutana na Mama yake Jogoo. Mama Jongoo akamuuliza, "Umemwona mwanangu?" Kuku hakujibu kitu. Mama Jongoo akapatwa na wasiwasi.
+Kuku alipokuwa anarudi nyumbani alikutana na Mama yake Jongoo. Mama Jongoo akamuuliza, "Umemwona mwanangu?" Kuku hakujibu kitu. Mama Jongoo akapatwa na wasiwasi.
 
 ##
-Mama Jogoo akasikia sauti kwa mbali. "Nisaidie mama!" Ililia ile sauti. Mama Jongoo aliangalia huku na kule na kusikiliza kwa makini. Sauti ilitokea tumboni mwa kuku.
+Mama Jongoo akasikia sauti kwa mbali. "Nisaidie mama!" ile sauti ililia. Mama Jongoo akaangalia huku na kule na kusikiliza kwa makini. Sauti ilitokea tumboni mwa kuku.
 
 ##
-Mama Jongoo alipiga kelele, "Tumia nguvu yako ya kipekee mwanangu!" Jongoo anaweza kutoa harufu mbaya na ladha ya ajabu. Kuku akaanza kujisikia mgonjwa.
+Mama Jongoo alipiga kelele, "Tumia nguvu yako ya kipekee mwanangu!" Majongoo wanaweza kutoa harufu mbaya na ladha ya ajabu. Kuku akaanza kujisikia mgonjwa.
 
 ##
-Kuku akabeuwa. Akameza mate na kutema. Alafu akapiga chafya na kukohoa. Akakohoa tena. Jongoo alimfanya ajisikie vibaya.
+Kuku akabeuwa. Akameza mate na kutema. Halafu akapiga chafya na kukohoa. Akakohoa tena. Jongoo alimfanya ajisikie vibaya.
 
 ##
-Kuku alikohoa, hadi akamtema jongoo aliyekuwa tumboni mwake. Mama Jongoo na mwanae wakakwea mti kujificha.
+Kuku alikohoa, hadi akamtema jongoo aliyekuwa tumboni mwake. Mama Jongoo na mwanaye wakakwea mti kujificha.
 
 ##
-Kuanzia wakati huo hadi leo hii Kuku na Jongoo ni maadui.
+Tangu hapo, Kuku na Jongoo ni maadui.
 
 ##
 * License: [CC-BY]

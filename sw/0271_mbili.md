@@ -1,12 +1,12 @@
 # Mbili
 
 ##
-Mikono miwili midogo ya kushika.
+Mikono miwili midogo ya kushikia.
 
 ##
 
 ##
-Miguu miwili midogo ya kupiga mateke.
+Miguu miwili midogo ya kupigia.
 
 ##
 
@@ -16,12 +16,12 @@ Macho mawili madogo ya kuonea.
 ##
 
 ##
-Masikio mawili madogo ya kufanya nisikie.
+Masikio mawili madogo ya kusikia.
 
 ##
 
 ##
-Na mikono miwili ya KUKUMBATIA kwa upendo.
+Na mikono miwili ya KUKUMBATIA kwa upendo!
 
 ##
 
