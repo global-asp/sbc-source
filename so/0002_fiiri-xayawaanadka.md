@@ -16,7 +16,7 @@ Faraskii ayaa leh, "Neeq."
 Doofaarka ayaa leh, "Garun."
 
 ##
-Digaaga ayaa leh, "kalook."
+Digaaga ayaa leh, "Kalook."
 
 ##
 Eygu wuxuu leeyahay, "Waah."
