@@ -1,44 +1,44 @@
 # Adhabu
 
 ##
-Siku moja mamangu alinunua matunda mengi sana.
+Siku moja, mama alileta matunda mengi.
 
 ##
-Mimi na ndugu zangu tulijiuliza lini mama angetugawia ili tule.
+“Tutakula matunda lini?” tunauliza. “Tutakula matunda leo jioni,” mama anasema.
 
 ##
-Baadaye, kaka angu, Rahim, alijificha. Aliyala matunda yale yote peke yake!
+Kaka yangu Rahim ni mlafi. Anaonja onja matunda yote. Anakula matunda mengi.  
 
 ##
-Mimi na ndugu yangu tulipogundua, tulilia tukisema, "Rahim ni mtukutu tena ni mchoyo."
+“Angalia Rahim alichokifanya!” mdogo wangu analalamika kwa sauti. “Rahim ni mtundu na mchoyo,” ninasema. 
 
 ##
-Mama alikasirika sana alipogundua kwamba matunda yote yalikuwa yameliwa.
+Mama amekasirishwa na Rahim.
 
 ##
-Mimi na ndugu yangu tulimwangalia Rahim kwa macho makali.
+Sisi pia tumekasirishwa na Rahim. Lakini Rahim haombi msamaha.  
 
 ##
-Tulimuuliza mama ikiwa angemwadhibu Rahim.
+“Hutamwadhibu Rahim?” mdogo wangu anauliza. 
 
 ##
-Lakini, Rahim alipata adhabu ambayo hatukutarajia.
+“Rahim, muda si mrefu utajuta,” mama anaonya.  
 
 ##
-Rahim hakuweza kutulia pahali pamoja!
+Rahim anaanza kuhisi kuumwa.  
 
 ##
-Mama alipomuuliza alijibu kwa sauti ya chini, "Naumwa na tumbo."
+“Tumbo langu linauma sana,” Rahim ananong’ona. 
 
 ##
-Sote tuliona kwamba hiyo ilikuwa adhabu mbaya kuliko kama Rahim angechapwa na mama.
+Mama alijua hili litatokea. Matunda yanamwadhibu Rahim!  
 
 ##
-Baadaye alipopata nafuu, Rahim alituomba msamaha.
+Baadaye, Rahim anatuomba msamaha. “Kamwe sitakuwa mlafi tena,” anaahidi. Na sote tunamwamini.
 
 ##
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
+* Translation: Monica Shank Lauwo & Lauwo George
 * Language: sw
-

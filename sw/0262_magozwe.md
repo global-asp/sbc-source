@@ -1,56 +1,56 @@
 # Magozwe
 
 ##
-Katika jiji la shughuli nyingi la Nairobi, mbali na maisha ya nyumbani, paliishi kikundi cha wavulana wasiokuwa na makazi. Waliikaribisha kila siku kama ilivyokuja. Asubuhi moja wa wavulana hao walikuwa wanaweka mikeka yao baada ya kulalia lami baridi. Walikoka moto karibu na biwi la takataka kwa kutumia makaratasi ili kufukuzia mbali baridi. Miongoni mwa wavulana hao alikuwa Magozwe, mdogo kwa wote.
+Kwenye jiji la Nairobi lenye pilikapilika nyingi, mbali na malezi ya nyumbani, paliishi kikundi cha wavulana wasiokuwa na makwao. Waliipokea kila siku ijayo kama ilivyo. Siku moja asubuhi, walikuwa wanakusanya virago vyao baada ya kulala kwenye baridi kando ya barabara. Ili kuondoa baridi, walikoka moto kwa kutumia takataka. Miongoni mwa kikundi hicho cha wavulana alikuwepo Magozwe. Alikuwa ni mdogo kuliko wote.
 
 ##
-Wazazi wa Magozwe walipofariki, alikuwa na umri wa miaka mitano pekee na alienda kuishi na mjomba wake. Mwanamume huyo hakumjali mtoto. Hakumpatia Magozwe chakula cha kutosha. Alimfanyisha Magozwe kazi nzito za nyumbani.
+Wakati wazazi wa Magozwe walipofariki, alikuwa na miaka mitano tu. Alienda kuishi na mjomba wake. Mjomba hakumjali Magozwe. Hakumpa chakula cha kutosha. Alimfanyisha kazi nyingi nzito.
 
 ##
-Magozwe alipolia au kulalamika au kumdadisi, mjomba wake alimpiga. Magozwe alipouliza kama angeenda shule, mjomba wake alimpiga na kusema, "Usinisumbue na hayo, wewe ni mjinga huwezi kujifunza chochote." Kwa hivyo baada ya miaka mitatu ya kunyanyaswa, Magozwe alitoroka kutoka kwa mjomba wake na kuanza kuishi mitaani.
+Magozwe alipolalamika au kuuliza, mjomba wake alimpiga. Magozwe alipouliza kama ataweza kwenda shule, mjomba wake alimpiga na kumwambia, “Wewe ni mjinga, hutaweza kujifunza chochote.” Baada ya miaka mitatu ya kunyanyaswa, Magozwe alitoroka kwa mjomba wake. Akaanza kuishi mtaani.
 
 ##
-Maisha ya mitaani yalikuwa magumu na wengi wao walijitahidi kila siku ili kupata chakula. Wakati mwingine walikamatwa, walichapwa na wananchi au waliugua. Kikundi hicho kilitegemea mapato waliyopata kwa kuomba omba na kuuza plastiki, vyuma, chupa na magazeti makuu kuu. Maisha vile vile yalikuwa magumu kutokana na vita baina yao na makundi ya wavulana waliotaka kudhibiti baadhi ya sehemu za jiji.
+Maisha ya mtaani yalikuwa magumu na wavulana wengi walipambana kila siku ili wapate chakula tu. Mara nyingine walikamatwa, mara nyingine walipigwa. Walipougua, kulikuwa hakuna mtu wa kuwasaidia. Kikundi kilitegemea hela ndogo ndogo walizopata kwa kuomba omba, na kwa kuuza plastiki na vitu kuukuu. Maisha yalikuwa magumu zaidi hasa kwa sababu ya vita dhidi ya vikundi pinzani vilivyotaka kudhibiti baadhi ya maeneo ya jiji.
 
 ##
-Siku moja wakati Magozwe alipokuwa akichunguza kwenye mapipa ya taka, alipata kitabu kizee cha hadithi. Alifuta vumbi na kukiweka ndani ya gunia lake. Baadae, kila siku alizoea kukitoa na kuangalia picha. Hakujua kusoma maneno.
+Siku moja Magozwe alipokuwa anachakura kwenye mapipa ya takataka, alikuta kitabu cha hadithi kilichokuwa kimechakaa. Aliondoa uchafu kwenye kitabu na kukiweka ndani ya mfuko wake. Kila siku baada ya hapo, alikitoa kitabu na kuangalia picha. Hakujua kusoma maandishi. 
 
 ##
-Picha zilielezea jinsi mvulana mmoja alvyokua na kuwa rubani wa ndege. Magozwe alitamani kuwa rubani bora ulimwenguni. Mara nyingine, angefumba macho na kufikiria kuwa anendesha ndege iliyokuwa kubwa na kwenda kwa kasi kuliko zingine zote!
+Picha zilikuwa zinaongelea hadithi ya mvulana ambaye alikuja kuwa rubani. Magozwe aliota kuwa rubani. Mara nyingine alifikiria kwamba yeye ni yule mvulana kwenye hadithi.
 
 ##
-Ulikuwa msimu wa baridi kali na Magozwe alisimama barabarani akiomba omba kwa watu wenye magari. Mwanamme mmoja alimkaribia. "Hujambo, naitwa Tomaso. Nafanya kazi karibu hapa, pahali ambapo unaweza kupata chakula," mwanamme alisema huku akionyesha nyumba yenye paa la bluu. "Natumaini utaenda pale kupata chakula kidogo?" Tomaso aliuliza. Magozwe alimwangalia yule mwanamme, kisha akaiangalia ile nyumba. "Labda," alisema, halafu akaondoka na kwenda zake.
+Kulikuwa na baridi na Magozwe alikuwa amesimama barabarani akiomba omba. Mtu alimkaribia. “Hujambo? Naitwa Thomas. Nafanya kazi karibu na hapa, mahali unapoweza kupata kitu cha kula,” mtu yule alisema. Alionyesha nyumba ya njano yenye paa la buluu. “Natumaini utaenda pale kupata chakula kidogo?” Thomas aliuliza. Magozwe alimwangalia yule mtu, kisha akaiangalia ile nyumba. “Labda,” akasema, halafu akaondoka.
 
 ##
-Miezi iliyofuata, wavulana wale wa mitaani walizoea kumuona Tomaso pale. Alipenda kuzungumza na watu, hasa walioishi mitaani. Alisikiliza hadithi za maisha ya watu kwa makini. Tomaso alikuwa na nia nzuri na mvumilivu na hakuwa mjeuri wala mkosa heshima kwa yeyote, hata kwa mtoto mdogo. Baadhi ya wavulana walianza kwenda katika nyumba ya paa la bluu ili kupata chakula wakati wa mchana.
+Miezi iliyofuata, wavulana wale wa mtaani walizoea kumwona Thomas hapa na pale. Alipenda kuzungumza na watu, hasa walioishi mitaani. Thomas alisikiliza simulizi za maisha ya watu. Alikuwa makini na mwenye subira, na hakuwa na kiburi wala dharau. Baadhi ya wavulana walianza kwenda kwenye ile nyumba ya njano na buluu ili kupata chakula cha mchana.
 
 ##
-Magozwe alikuwa ameketi akiangalia kitabu chake cha picha wakati Tomaso alikaa karibu naye. "Hadithi inahusu nini?" Tomaso aliuliza. "Inahusu mvulana aliekuakuwa rubani," Magozwe alijibu. "Jina lake ni nani?" Tomaso aliuliza. "Sijui, siwezi kusoma," Magozwe alisema kwa sauti ya chini.
+Magozwe alikuwa amekaa kando ya barabara akiangalia kitabu chake cha picha Thomas alipokaa pembeni mwake. “Hadithi hiyo inahusu nini?” Thomas akauliza. “Inahusu mvulana aliyekuja kuwa rubani,” Magozwe akajibu. “Jina lake ni nani?” Thomas akauliza. “Sijui, siwezi kusoma,” Magozwe akasema kwa sauti ya chini.
 
 ##
-Walipokutana namna hii, Magozwe alianza kumhadithia Tomaso maisha yake. Kuhusu mjomba wake na sababu iliyomfanya atoroke kutoka kwake. Tomaso hakuongea sana, na wala hakumwambia Magozwe cha kufanya bali alisikiliza kwa makini kila mara. Wakati mwingine waliongea wakiwa wanakunywa supu na kula mkate katika ile nyumba ya paa la bluu.
+Walipokutana, Magozwe alianza kumsimulia Thomas maisha yake. Alimwelezea kuhusu mjomba wake na sababu zilizomfanya atoroke. Thomas hakuongea sana, wala hakumwambia Magozwe nini cha kufanya, bali alisikiliza kwa makini kila mara. Wakati mwingine waliongea wakiwa wanakula kwenye ile nyumba yenye paa la buluu.
 
 ##
-Wakati Magozwe aliposherehekea miaka kumi ya kuzaliwa kwake, Tomaso alimpatia kitabu kipya cha hadithi. Hadithi ilikuwa juu ya mvulana wa kijiji aliyekuwa mchezaji kandanda maarufu. Tomaso alimsomea Magozwe hadithi hiyo mara nyingi hadi siku moja aliposema, "Nadhani wakati umewadia wa wewe kwenda shule ili ujisomee hadithi hii mwenyewe. Unaonaje?" Tomaso alieleza kwamba alipafahamu mahali ambapo watoto wangeweza kukaa, kuishi na kwenda shule.
+Mnamo mwaka wa kumi wa kuzaliwa kwa Magozwe, Thomas alimzawadia kitabu kipya cha hadithi. Ilikuwa ni hadithi inayohusu mvulana wa kijijini aliyekuja kuwa mcheza mpira maarufu. Thomas alimsomea Magozwe hadithi hiyo mara nyingi, mpaka siku moja akasema, “Nafikiri wakati umewadia wa kwenda shule kujifunza kusoma. Unaonaje?” Thomas alieleza kwamba anajua sehemu ambayo watoto wanaweza kuishi na kwenda shule.
 
 ##
-Magozwe alifikiria juu ya mahali hapo papya na juu ya kwenda shule. Labda mjombawake alisema ukweli kwamba yeye ni mjinga na hangeweza kujifunza chochote? Je, na akipigwa huko? Aliogopa. "Labda ni heri kubaki mitaani," aliwaza.
+Magozwe alifikiria kuhusu sehemu hii mpya, na kuhusu kwenda shule. Itakuwaje kama mjomba wake alikuwa sahihi kwamba alikuwa mjinga kiasi cha kutoweza kujifunza chochote? Itakuwaje kama watampiga sehemu hii mpya? Aliogopa. “Labda ni heri kuendelea kuishi mtaani,” aliwaza.
 
 ##
-Alimwelezea Tomaso mawazo yake na hofu aliyokuwa nayo. Muda ulipoenda, Tomaso alifaulu kumhakikishia Magozwe kwamba mahali pale papya ni salama na maisha yangekuwa bora.
+Alimshirikisha Thomas juu ya hofu aliyokuwa nayo. Baada ya muda Thomas alimhakikishia kwamba maisha yatakuwa bora huko sehemu mpya.
 
 ##
-Kwa hivyo, Magozwe alihamia katika chumba ndani ya nyumba ya paa la kijani kibichi. Alikitumia chumba hicho pamoja na wavulana wengine wawili. Jumla walikuwa watoto kumi walioishi katika nyumba ile. Pamoja nao palikuwa na Shangazi Cissy na mumewe, mbwa watatu, paka na mbuzi mzee.
+Kwa hiyo Magozwe alihamia kwenye chumba katika nyumba yenye paa la kijani. Alikaa chumba kimoja na wavulana wengine wawili. Kwa ujumla kulikuwa na watoto kumi walioishi kwenye nyumba ile. Waliishi pamoja na Shangazi Cissy na mume wake, mbwa watatu, paka mmoja, na mbuzi aliyezeeka. 
 
 ##
-Magozwe alianza kwenda shule na haikuwa rahisi. Mara nyingi alitaka kukata tamaa. Lakini alipofikiria juu ya rubani na mchezaji kandanda maarufu aliosoma katika vitabu vya hadithi, alivumilia.
+Magozwe alianza shule na ilikuwa ngumu. Alikuwa na mengi ya kujifunza. Mara nyingine alitaka kukata tamaa. Lakini aliwaza kuhusu rubani na mcheza mpira kwenye vitabu vya hadithi. Kama wao, hakukata tamaa.
 
 ##
-Magozwe alikuwa ameketi uani nje ya nyumba ya paa la kijani kibichi akisoma kitabu cha shule. Tomaso alikuja na kukaa karibu naye. "Hadithi inahusu nini?" Tomaso aliuliza. "Inahusu mvulana ambaye ni mwalimu," Magozwe alijibu. "Jina la mvulana ni nani?" Tomaso aliuliza tena. "Jina lake ni Magozwe," Magozwe alisema huku akitabasamu.
+Magozwe alikuwa amekaa uani kwenye nyumba yenye paa la kijani, akisoma kitabu cha hadithi cha shule. Thomas alikuja na kukaa kando yake. “Hadithi inahusu nini?” Thomas akauliza. “Inahusu mvulana aliyekuja kuwa mwalimu,” Magozwe akajibu. “Jina lake ni nani?” akauliza Thomas. “Jina lake ni Magozwe,” Magozwe akasema kwa tabasamu.
 
 ##
 * License: [CC-BY]
 * Text: Lesley Koyi
 * Illustration: Wiehan de Jager
-* Translation: Ursula Nafula
+* Translation: Lauwo George & Monica Shank Lauwo
 * Language: sw
