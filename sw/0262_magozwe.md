@@ -13,7 +13,7 @@ Magozwe alipolalamika au kuuliza, mjomba wake alimpiga. Magozwe alipouliza kama 
 Maisha ya mtaani yalikuwa magumu na wavulana wengi walipambana kila siku ili wapate chakula tu. Mara nyingine walikamatwa, mara nyingine walipigwa. Walipougua, kulikuwa hakuna mtu wa kuwasaidia. Kikundi kilitegemea hela ndogo ndogo walizopata kwa kuomba omba, na kwa kuuza plastiki na vitu kuukuu. Maisha yalikuwa magumu zaidi hasa kwa sababu ya vita dhidi ya vikundi pinzani vilivyotaka kudhibiti baadhi ya maeneo ya jiji.
 
 ##
-Siku moja Magozwe alipokuwa anachakura kwenye mapipa ya takataka, alikuta kitabu cha hadithi kilichokuwa kimechakaa. Aliondoa uchafu kwenye kitabu na kukiweka ndani ya mfuko wake. Kila siku baada ya hapo, alikitoa kitabu na kuangalia picha. Hakujua kusoma maandishi. 
+Siku moja Magozwe alipokuwa anachakura kwenye mapipa ya takataka, alikuta kitabu cha hadithi kilichokuwa kimechakaa. Aliondoa uchafu kwenye kitabu na kukiweka ndani ya mfuko wake. Kila siku baada ya hapo, alikitoa kitabu na kuangalia picha. Hakujua kusoma maandishi.
 
 ##
 Picha zilikuwa zinaongelea hadithi ya mvulana ambaye alikuja kuwa rubani. Magozwe aliota kuwa rubani. Mara nyingine alifikiria kwamba yeye ni yule mvulana kwenye hadithi.
@@ -40,7 +40,7 @@ Magozwe alifikiria kuhusu sehemu hii mpya, na kuhusu kwenda shule. Itakuwaje kam
 Alimshirikisha Thomas juu ya hofu aliyokuwa nayo. Baada ya muda Thomas alimhakikishia kwamba maisha yatakuwa bora huko sehemu mpya.
 
 ##
-Kwa hiyo Magozwe alihamia kwenye chumba katika nyumba yenye paa la kijani. Alikaa chumba kimoja na wavulana wengine wawili. Kwa ujumla kulikuwa na watoto kumi walioishi kwenye nyumba ile. Waliishi pamoja na Shangazi Cissy na mume wake, mbwa watatu, paka mmoja, na mbuzi aliyezeeka. 
+Kwa hiyo Magozwe alihamia kwenye chumba katika nyumba yenye paa la kijani. Alikaa chumba kimoja na wavulana wengine wawili. Kwa ujumla kulikuwa na watoto kumi walioishi kwenye nyumba ile. Waliishi pamoja na Shangazi Cissy na mume wake, mbwa watatu, paka mmoja, na mbuzi aliyezeeka.
 
 ##
 Magozwe alianza shule na ilikuwa ngumu. Alikuwa na mengi ya kujifunza. Mara nyingine alitaka kukata tamaa. Lakini aliwaza kuhusu rubani na mcheza mpira kwenye vitabu vya hadithi. Kama wao, hakukata tamaa.
