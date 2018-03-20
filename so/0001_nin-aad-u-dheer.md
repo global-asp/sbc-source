@@ -7,28 +7,28 @@ Yaanbadiisa waxay ahayd mid aad u gaaban.
 Albaabkiisa waxuu ahaa mid aad u hooseeyo.
 
 ##
-Sarriirtiisa waxay ahayd mid aad u  gaaban.
+Sariirtiisa waxay ahayd mid aad u gaaban.
 
 ##
-Baaskiilkiisuna aad buu u yaraa.
+Baaskiilkiisa waxuu ahaa mid aad u gaaban.
 
 ##
-Ninkan aad ayuu u dheeryahay!
+Ninkan aad ayuu u dheeraa!
 
 ##
-Waxuu sameeyay daab yaanbo oo aad u dheer.
+Waxuu sameeyay daab yaanbo aad u dheer.
 
 ##
-Waxuu sameeyay albaabyo aad u sarreeyo.
+Waxuu sameeyay gidaaro albaab oo aad u sareeyo.
 
 ##
-Waxuu sameeyay sarriir aad u dheer.
+Waxuu sameeyay sariir aad u dheer.
 
 ##
-Waxuu soo iibsaday baaskiil aad u sarreeyo.
+Waxuu soo iibsaday baaskiil aad u sareeyo.
 
 ##
-Waxuu ku fadhiistay kursi aad u sarreeyo. Waxuu kucunay qaado aad u dheer.
+Waxuu ku fadhiistay kursi aad u sareeyo. Waxuu kucunay fargeeto aad u dheer.
 
 ##
 Waxuu ka tagay gurigiisa waxuuna ku noolaa kayn weyn. Waxuu ku noolaa sanado badan.

@@ -4,25 +4,25 @@
 Dharkan wuu dheeryahay
 
 ##
-Xubnahan waa wayn
+Funaanadan waa mid wayn.
 
 ##
-Bacdan way wayntahay
+Boorsadan waa mid wayn.
 
 ##
 Suunkan waa...
 
 ##
-Koofiyadan way yartahay
+Koofiyadan waa mid yar.
 
 ##
-Sharaabaadadkan waa gaabanyihiin
+Sharaabaadaha waa kuwo gaaban.
 
 ##
-Laakiin kabahaasi way cusub yihiin
+Laakiin kabahani waa kuwo cusub.
 
 ##
-... waxaay sifiican ula egyihiin.
+...si fiican bey ula egyihiin.
 
 ##
 * License: [CC-BY-NC]

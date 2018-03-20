@@ -1,31 +1,32 @@
 # Ilmo dameer ah
 
 ##
-Gabar yar ayaa aragtay hummaag yaab leh oo meel ka fog ka muuqda.
+Gabar yar ayaa aragtay muuqaal
+ Aan la garaneyn oo masaafo ka muuqdo.
 
 ##
-Markii uu hummaaggii soo dhowaaday, waxa ay garatay in uu yahay haweeney xaamilo ah.
+Markii uu muuqaalki soo dhowaaday, waxa ay aragtay in ay tahay haweeney xaamilo culus ah.
 
 ##
-Way xishootay wayse kelyo adaygtay, oo gabadhii waxa ay ku sii dhowaatay haweeneydii. "Waa in ay nala joogtaa," ayay gabadha dadkeedii go'aansadeen. "Iyada iyo ilmaheedaba waa aannu nabad gelinaynaa."
+xishood laakiin geesi nimo, gabadhii waxa ay ku sii dhowaatay haweeneydii. "Waa in ay nala joogtaa," ayay gabadha dadkeedii go'aansadeen. "Iyada iyo ilmaheedaba waa aannu nabad gelinaynaa."
 
 ##
-Dhalashadii ilmaha ayaa soo dhowaatay. "Doco!" "Bustayaal la kaalaya!" "Biyo!" "Dooooooooooco!!!"
+Ilmaha ayaa soo dhakhso ba wadada soo galay. "Riix!" "Bustayaal la kaalaya!" "Biyo!" "Riiiiixxxx!!!"
 
 ##
-Laakiin markii ay ilmihii arkeen, qof waliba waa uu argagaxay. "Waa dameer?!"
+Laakiin markii ay ilmihii arkeen, qof walba gadaal ayuu argagax ula booday. "Dameer?!"
 
 ##
-Qof waliba muran ayuu bilaabay. "Waxa aynnu ballan qaadnay in aan ilmaha iyo hooyadaba nabad gelyo siinno, waana in aan sidaas yeelnaa," qaar baa sidaa yiri. "Laakiin waxa ay noo horseedi doonaan nasiibdarro!" qaar kale ayaa sidaa iyana yiri.
+Qof waliba muran ayuu bilaabay. "Waxa aynnu ballan qaadnay in aan ilmaha iyo hooyadaba nabad gelyo siinno, waana in aan sidaas yeelnaa," qaar baa sidaa yiri. "Laakiin waxa ay noo horseedi doonaan nasiib darro!" qaar kale ayaa sidaa iyana yiri.
 
 ##
-Sidaa darteed haweeneydii way cidlowday mar kale. Waxa ay ka fikirtay wixii ay ku sameyn lahayd ilmahan qaabka daran. Waxa kale oo ay ka fikirtay wixii ay iyaduna isku sameyn lahayd.
+Sidaa darteed haweeneydii way cidlowday mar kale. Waxa ay ka la yaabaneyd wixii ay ku sameyn lahayd ilmahan qaabka daran. Waxa kale oo ay ka la yaabaneyd wixii ay iyaduna isku sameyn lahayd.
 
 ##
-Aakhirkii waxa ay isku qancisay in ay oggolaato in uu ilmaheedii yahay, iyaduna ay hooyadiis tahay.
+Aakhirkii waxa ay isku qancisay in ay aqbasho in uu ilmaheedii yahay, iyaduna ay hooyadiis tahay.
 
 ##
-Haddii uu ilmuhu aanu koreen oo uu qaabkiisu iska yaraan lahaa, sida uu hadda yahay, wax waliba caadi baa ayy iska ahaan lahaayeen. Laakiin ilmihii dameerka ahaa wuu koray oo koray ilaa uu ka gaaray heer uu ka weynaaday dhabarkii hooyadii. Si kasta oo uu isku deyey in uu yeelana, waa uu u dhaqmi waayey sidii dadkii oo kale. Hooyadii aad bay u daashay oo waa ay isku buuqday. Marmar waxa ay isku dayday in uu sida xayawaanka u shaqeeyo.
+Hada, hadii uu dameerka ku joogi lahaa sidiisi,bar yaraanta,wax walbo waxaan ahaan lahaayeen si ka duwan sidan. Laakiin ilmihii dameerka ahaa wuu koray oo koray ilaa uu la ekaan waayay dhabarkii hooyadii. Si kasta oo uu isku deyay na, waa uu u dhaqmi waayey sidii dadkii oo kale. Hooyadii aad bay u daashay oo waa ay isku buuqday. Marmar waxa ay isku dayday in uu sida xayawaanka u shaqeeyo.
 
 ##
 Jahawareer iyo carro ayaa iskugu darsantay dameerkii. Sidan ma yeeli karo sidaana ma yeeli karo. Sidan ma noqon karo sidaana ma noqon karo. Mar uu aad u xanaaqay, ayaa uu maalin hooyadii laad ku kiciyey oo dhulka ku tuuray.
@@ -34,7 +35,7 @@ Jahawareer iyo carro ayaa iskugu darsantay dameerkii. Sidan ma yeeli karo sidaan
 Dameerkii ceeb ayuu dareemay. Waxa aanu bilaabay in uu aad u ordo oo uu u cararo meel fog.
 
 ##
-Markii uu joogsaday, habeen bay ahayd, Dameerkiina waa uu lumay. "Hee haw?" codkiisii ayaa dib ugu soo laabtay. Wuu cidlooday oo keligii ayaa uu noqday. Intuu isku duubay bur adag oo hoosta gashaday, ayuu hurdo aan farxadi ku jirin oo cidla' dareen ah la dhacay.
+Markii uu joogsaday, habeen bay ahayd, Dameerkiina waa uu lumay. "Aaa’i Aaa?" codkiisii ayaa dib ugu soo laabtay. Wuu cidlooday oo keligii ayaa uu noqday. Intuu isku duubay bur adag oo hoosta gashaday, ayuu hurdo aan farxadi ku jirin oo cidla' dareen ah la dhacay.
 
 ##
 Dameerkii waxa uu toosay isaga oo uu oday weyn dul taagan yahay. Odaga indhihiisii ayuu kor u eegay isaga oo ay xoogaa rajo ahi soo gashay.
@@ -58,7 +59,7 @@ Ugu dambeyntii dameerkii waa uu yiqiinsaday wixii uu sameyn lahaa.
 Dameerkii waxa uu helay hooyadii, oo cidlootay una barooranaysa ilmaheedii lumay. Muddo dheer ka dib waa ay isku dhaygageen. Dabadeedna si kal iyo laab ah ayay isku habsiiyeen oo isugu dhegeen.
 
 ##
-Dameerkii iyo hooyadii waa ay wada koreen waxana ay barteen noocyo badan oo ay iskula noolaadaan. tartiib tartiib, ayaa ay qoysas badni, ula soo degeen.
+Ilmihi dameerka ahaa iyo hooyadii waa ay wada koreen wax ayna heleen qaab badannoocyo badan oo ay ku wada noolaan karaan midba midka dhinaciisa. tartiib tartiib, dhinacyadooda oo dhan, qoysas ayaa bilaabay in ay soo dagaan.
 
 ##
 * License: [CC-BY]

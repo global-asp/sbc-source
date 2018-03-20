@@ -4,13 +4,13 @@
 Waan heesayaa.
 
 ##
-Gacanta ayay u haadinaysaa.
+Gacanta ayay haadinaysaa.
 
 ##
 Waan sacbinayaa.
 
 ##
-Waay jimicsanaysaa.
+Waa ay jimicsanaysaa.
 
 ##
 Wuu u yeedhayaa.
@@ -19,7 +19,7 @@ Wuu u yeedhayaa.
 Waan ka jawaabayaa.
 
 ##
-Way dhagaysanaysaa.
+Waa ay dhagaysanaysaa.
 
 ##
 Maxaad samaynaysaa?

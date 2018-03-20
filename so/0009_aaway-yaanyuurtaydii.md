@@ -4,25 +4,25 @@
 Aaway yaanyuurtaydii?
 
 ##
-Masariirta hoosteeday kujirtaa?
+Ma sariirta ayey ku hoos jirtaa?
 
 ##
-ma armaajaday korsaarantahay?
+ma armaajada ayay kor saarantahay?
 
 ##
-mawaxay gadaal kajirtaa fadhiga?
+ma fadhiga ayay gadaal kajirtaa?
 
 ##
-mawaxay kuxigtaa weelka qashinka?
+ma weelka qashinka ayay ku xigtaa?
 
 ##
-ma waxay kujirtaa dambiisha?
+ma dambiisha ayay ku dhex jirtaa?
 
 ##
-mawaxay jogtaa bananka?
+ma guriga banaankiisa ayay joogtaa?
 
 ##
-halkanay joogtaa!
+waa tan halkan joogta!
 
 ##
 * License: [CC-BY-NC]

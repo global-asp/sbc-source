@@ -1,7 +1,7 @@
-# Maalintii an katagay guriga een magalada aaday.
+# Maalintii an katagay guriga een magalada aaday
 
 ##
-Baska yar ee tuuladayda waxay ku mashquulsanaayen dadka , wayne buux dhaafsanayeen. Dhulka xitaa waxyaabo badan ayaa yaalay oo u baahnaa in la raro. Rakaabiyaha ( gaari rare)  ayaa ku qaylinayay magacyada basaskoda mesha ay u socdaan.
+Baska yar ee tuuladayda waxay ku mashquulsanaayen dadka, wayne buux dhaafsanayeen. Dhulka xitaa waxyaabo badan ayaa yaalay oo u baahnaa in la raro. Rakaabiyaha ( gaari rare) ayaa ku qaylinayay magacyada basaskoda mesha ay u socdaan.
 
 ##
 "Magaalada, Magaalada, Waxuu u socdaa Galbeedka!" Waxaan maqlay cod ka rakaabiyihii oo ku qaylinayo. Kaasi ayaa ahaa baskii aan u baahnaa in aan raaco.
@@ -31,10 +31,10 @@ Hawlahani waxaa kala gooyay baska hoonkisa, calaamad muujinayso in aan diyaar u 
 Wareejiya yaashii ayaa isku riixay si ay uga dagaan baska. Qaarkood waxay sii yeen baaqigoda rakaabkii. Kuwa kale waxay sameeyeen daqiiqadkii ugu dambeeyey ee iibinta alaabooyin badan.
 
 ##
-Saas tuu u dhaqaaqay baska , waxaan daaqada ka fiiriyay bananka. Waxaan la yaabay haddii aan mar kale ku laaban doono tuuladayda.
+Saas tuu u dhaqaaqay baska, waxaan daaqada ka fiiriyay bananka. Waxaan la yaabay haddii aan mar kale ku laaban doono tuuladayda.
 
 ##
-Intii safarka sii gudo galnay, gudaha baska ayaa aad u kululaaday. Waxaan is ku qabsaday indhaha anoo  rajeynayo inaan seexdo.
+Intii safarka sii gudo galnay, gudaha baska ayaa aad u kululaaday. Waxaan is ku qabsaday indhaha anoo rajeynayo inaan seexdo.
 
 ##
 Laakiin maskaxdayda ayaa dib ugu laabatay guriga. Hooyaday miyay amaan ahan doontaa? Miyuu bakaylahaygu ii gali doona wax lacag ah? Walaalkay mawuu xusuusan doonaa in uu geedahaygi waraabiyo?

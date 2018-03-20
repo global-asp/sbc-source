@@ -37,7 +37,7 @@ Sakima waxa uu waydiiyay, Maxaa qaldan hooyo, aabe? "Sakima ayaa waydiiyay. Saki
 Si kastaba ha ahaatee, Sakima uma joojin. Walaashiisii ​​yarayd ayaa ku taageertay isaga. Waxay tiri, "Sakima heestisa way idajisaa markaan gaajoonayo. Way dajin doonan ninka taajirka ah."
 
 ##
-Maalintii xigtay, Sakima wuxuu walaashiisii ​​yarayd weydiistay in ay u wado ninkii hodanka ahaa gurigiisa.
+Maalintii xigtay, Sakima wuxuu walaashiisii ​​yarayd weydiistay in ay u wado ninkii taajirka ahaa gurigiisa.
 
 ##
 Waxa uu hoos istaagay daaqad weyn wuxuuna bilaabay in uu ku heeso heestiisi uu jeclaa. Si tartiib ah, madaxa ninki hodanka aha ayaa bilaabay in uu kasoo muuqdo daaqadi weynayd.
@@ -49,7 +49,7 @@ Shaqaalihii way joojiyeen wixii ay qabanayeen. Waxay dhagaysteen heesta Sakima e
 Sakima dhameysatay heestiisi waxuna u jeestay inuu tago. Laakiin ninkii taajirka ahaa ayaa banaanka u soo baxay oo wuxuu ku yidhi, Fadlan heestii iigu soo celi.
 
 ##
-Waqtigan xaadirka ah, laba nin ayaa yimid iyaga oo qof ku wado naxash. Waxay soo heleen ninkii taajirka  ahaa wiilkiisa oo la garaacay loo gana tagay wadada dhinaceeda.
+Waqtigan xaadirka ah, laba nin ayaa yimid iyaga oo qof ku wado naxash. Waxay soo heleen ninkii taajirka ahaa wiilkiisa oo la garaacay loo gana tagay wadada dhinaceeda.
 
 ##
 Ninkii taajirka ahaa waxuu aad ogu farxay in uu mar kale arko wiilkiisa. Waxuu abaalmariyey Sakima. Wuxuu isbitaalka u qaaday wiilkiisa iyo Sakima si Sakima uu dib ugu helo aragiisa.

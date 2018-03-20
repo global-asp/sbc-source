@@ -10,31 +10,31 @@ Anigu waxaan ahay kan qorraxda soo bixiyo.
 "Waxaad tahay xiddigta subaxdayda," ayuu yidhi Ma.
 
 ##
-Anigu waan maydhaa, uma baahni wax caawimo ah.
+Anigu waan maydhaa, ma u baahni wax caawin ah.
 
 ##
-Waxaan ku waji dhaqan karaa biyo qabow iyo saabuun buluug ah oo shiirayso.
+Waxaan la qabsan karaa biyo qabow iyo saabuun shiirayso oo buluug ah.
 
 ##
-Ma aya i xasuusiyo, "Ha iloobin ilkaha." Waxaan ku jawaabaa, "Marna, aniga ma ihi!"
+Ma aya i xasuusiyo, "Ha iloobin ilkaha." Waxaan ku jawaabaa, "Marnaba, aniga ma ihi!"
 
 ##
-Ka dib markii aan maydho, waxaan salaamaa awoowe iyo eedo, oo waxaan u rajeyaa maalin wanaagsan.
+Ka dib markii aan maydho, waxaan salaamaa awoowe iyo eedo, oo waxaan u rajeeyaa ayaga maalin wanaagsan.
 
 ##
 Dabadeedna waan labistaa, "hadda waan weynahay Ma," ayaan dhahaa.
 
 ##
-Waxaan xidhi karaa badhankayga iyo suunka kabahayga.
+Waxaan xidhi karaa badhanyadayda iyo suunka kabahayga.
 
 ##
-Anigu waxaan hubaa in walaalkeeyga yar uu ogyahay dhamaan wararka iskuulka.
+waxaan na hubiyaa in walaalkeyga yar uu yaqaano dhamaan wararka iskuulka.
 
 ##
 Fasalka dhexdiisa waxaan ku dadaalayaa sida ugu fiican.
 
 ##
-Waxyaabahan wanaagsan oo dhan waxaan sameeyaa maalin kasta. Laakiin waxa aan ugu jeclahay, waa inaan ciyaaro oo aan ciyaaro!
+Waxyaabahan wanaagsan oo dhan waxaan sameeyaa maalin kasta. Laakiin waxa aan ugu jeclahay, waa in aan ciyaaro oo aan ciyaaro!
 
 ##
 * License: [CC-BY]

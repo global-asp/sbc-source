@@ -1,19 +1,19 @@
 # Yaxaaskii baahnaa
 
 ##
-Mar waxaa jirijiray yaxaas baahan.
+Mar waxaa jirijiray yaxaas aad u baahan.
 
 ##
-Waxuu raadiyay cunto sitartiibtartiib ah oo dagan. Kadib...
+Waxuu raadiyay cunto si tartiib ah oo aamusni leh. Kadib na...
 
 ##
-BAAW!!! Yaxaaskii wuu weeraray!
+BAAWW!!! Yaxaaskii wuu weerartamay!
 
 ##
-Markaa kadib muusan gaajoonin wuuna kufaraxsanyahay.
+Markaa kadib ma usanaheyn mid gaajeysan, wuuna faraxsanaa.
 
 ##
-Ilaa uu kabaahdo hadane.
+Ilaa uu kabaahdo markale.
 
 ##
 * License: [CC-BY]

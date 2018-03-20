@@ -25,10 +25,10 @@ Waxay ahayd qabow, Magozwe ayaa istaagnaa wadada asagoo tuugsan hayo. Nin baa xa
 Bilihii ka dambeeyey, wiilashii hooy la'aanta ah waxay arki jireen Thomas. Wuxuu jeclaa in uu la hadlo dadka, gaar ahaan dadka ku nool jidadka. Thomas wuxuu dhageystay sheekooyinka nolosha dadka. Waxa uu ahaa mid aad udaneeyo una dulqaato, marnaba ma ahayn mid aan fiicneyn ama ixtiraam daran. Qaar ka mid ah wiilasha waxay bilaabeen inay aadaan guriga jaalaha iyo buluuga ah si ay cunto u helaan duhurnimadii.
 
 ##
-Magozwe wuxuu fadhiistay wadada isaga oo eegaya buugiisa sawirka markuu Thomas u soo fadhiistay agtiisa. " Maxay sheekada ku saabsantahay?" waxaa weydiiyay Thomas. "Waxay ku saabsan tahay wiil yar oo noqday duuliye," ayuu yiri Magozwe. "Waa maxay magaca wiilka?" Waxaa weydiiyay Thomas. "Ma aqaan, ma aqrin karo," ayuu yiri Magozwe oo si hoose u sheegay.
+Magozwe wuxuu fadhiistay wadada isaga oo eegaya buugiisa sawirka markuu Thomas u soo fadhiistay agtiisa. "Maxay sheekada ku saabsantahay?" waxaa weydiiyay Thomas. "Waxay ku saabsan tahay wiil yar oo noqday duuliye," ayuu yiri Magozwe. "Waa maxay magaca wiilka?" Waxaa weydiiyay Thomas. "Ma aqaan, ma aqrin karo," ayuu yiri Magozwe oo si hoose u sheegay.
 
 ##
-Markii ay kulmeen, Magozwe wuxuu bilaabay in uu sheekadiisa u sheego Thomas. Waxay ahayd sheekadii adeerkiis iyo sababta uu ooga sootagay. Thomas lama hadlin wax badan, mana u sheegin Magozwe waxa uu sameyn lahaa, laakiin had iyo jeer wuxuu u dhageystay si taxadar leh. Mararka qaarkood waxay way sheekaysan jireen markii ay ku  cunaayan guriga leh saqafka buluugga ah.
+Markii ay kulmeen, Magozwe wuxuu bilaabay in uu sheekadiisa u sheego Thomas. Waxay ahayd sheekadii adeerkiis iyo sababta uu ooga sootagay. Thomas lama hadlin wax badan, mana u sheegin Magozwe waxa uu sameyn lahaa, laakiin had iyo jeer wuxuu u dhageystay si taxadar leh. Mararka qaarkood waxay way sheekaysan jireen markii ay ku cunaayan guriga leh saqafka buluugga ah.
 
 ##
 Maalintii tobnaad dhalashada Magozwe wuxuu Thomas siiyey buug sheeko oo cusub. Waxay ahayd sheeko ku saabsan wiil yar oo tuulo joogay oo koray si uu u noqdo ciyaaryahan caan ah. Thomas wuxuu sheekadaas u akhriyey Magozwe marar badan, ilaa hal maalin ayuu yiri, "Waxaan u maleynayaa inay tahay waqtigii aad tagtay dugsiga aadna baratay si aad u akhrido. Maxaad u malaynaysaa?" Thomas wuxuu sharxay inuu ogaa meel ay carruurtu joogi karaan, oo aadaan dugsi.

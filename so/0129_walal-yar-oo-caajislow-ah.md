@@ -7,13 +7,13 @@ Waan toosa oo dabkan shidaa.
 Xooga biyo ah ayaan kariyaa.
 
 ##
-Xabadan jajebyaa.
+Xabadaan jajabiyaa.
 
 ##
 Dhariga waan walaaqaa.
 
 ##
-Sibdhka ayaan xaaqaa.
+Sibidhka ayaan xaaqaa.
 
 ##
 Weelashan dhaqaa.
@@ -21,7 +21,7 @@ Weelashan dhaqaa.
 ##
 Maxaan aad ugu shaqeeyaa...
 
-... markuu walaalkey yar cayaar ku masquulsanyahay?
+... markuu walaalkey yar cayaar ku mashquulsanyahay?
 
 ##
 * License: [CC-BY-NC]

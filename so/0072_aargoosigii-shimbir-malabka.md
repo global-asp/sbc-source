@@ -1,37 +1,37 @@
 # Aargoosigii shimbir-malabka
 
 ##
-Sheekadani waxa ay dhexmartay shimbir-malab la yiraahdo Ngede iyo wiil damaaci ah oo la yiraahdo Gingile. Maalin ayaa Gingile oo ugaarsanayaa waxa uu maqlay ci'da Negede. Gingile waxa uu niyeystay malab waa uuna dhareeriyey. Wuu istaagay isaga oo si taxaddar leh u dhegeysanaya, oo raadraadinaya ilaa uu arkay shimbirkii oo geed halkeer ah dushii ku taagan. "Chitik-chitik-chitik," shimbirkii yarayd ayaa sidaa u ciyay, isaga oo geedba geed uga sii gudbaya. "Chitik-chitik-chitik," ayuu u sii ciyay, isaga oo hadba istaagaya oo dhawraya si uu u hubsado in uu Gingile la socdo.
+Tani waa sheekada Ngede, shimbir-malabka, iyo nin yar oo dhuuni ah laguna magacaabay Gingile. Maalin goor uu Gingile ugaarsi tagay maqlay ci’da Ngede. Gingile afkiisa ayaa bilaabay in uu dhareero niyeysiga malab dartii. Wuu istaagay wuu na dhagaystay si taxadar ah, oo uu raadiyay ilaa uu arkay shimbirkii oo laamaha korka madaxiisa ku jiro. "Jiiq-jiiq-jiiq," ayuu ku shanqaray shimbiarki yaraa, isaga oo u duulay geedka ku xigo, hadana kan kale. “jiiq-jiiq-jiiq," ayuu ku ciyay, istaagayana marba mar si uu u hubsado in uu Gingile soo raacay.
 
 ##
-Saacad barkeed ka dib, waxa ay soo gaareen geed weyn oo baaxad leh. Ngede waxa uu si waalli ah u dhex muquurtay laamihii geedka. Dabadeedna waxa uu dul fariistay mid ka mid ah laamihii, waxana uu madaxiisa u soo raariciyey Gingile sidii isaga oo oranaya oo kale, "Halkan buu ku jiraa malabku! Soo fuul hadda! Maxaa kaa hor taagan oo ku daahinaya?" Gingile kuma aanu arag wax shinni ah geedka hoostiisa, laakiin waxa uu rumaystay Ngede.
+Saacad barkeed ka dib, waxa ay soo gaareen geed berde duur baaxad le. Ngede waxa uu si waalli ah ugu boodbooday laamihii geedka. Dabadeedna waxa uu dul dagay mid ka mid ah laamihii, waxa uu na madaxiisa ku soo leexiyay Gingile sidii in la dhahayo, " waa kan! Kaalay hada! Maxaa waqtigaas dheeer u qaadaneysaa?" Gingile kama uusan arki karayn wax shinni ah geedka hoostiisa, laakiin waxa uu aaminay Ngede.
 
 ##
-Gingile waxa uu dhigtay warrankii uu ku ugaarsanayey geedka hoostiisa, waxa uu soo aruursaday xaabo, dab ayuuna shiday. Markii uu dabkii u baxay si fiican, qori dheer oo qallalan ayuu dabkii ku qabtay. Qorigani waxa uu ahaa mid caan ku ah in uu sameeyo qiic badan marka la shido. Waxa uu bilaabay in uu fuulo geedkii, isaga oo ilkaha ku haya qorigii qiicayey dhanka uu ka shidan yahay ma ahane dhankii kale ee aan gubanayn.
+Gingile waxa uu warrankii ugaarsiga dhigtay geedka hoostiisa, waxa uu soo aruursaday xaabo, dab ayuuna shiday. Markii uu dabkii si fiican u shidmay, qori dheer oo qallalan ayuu dabkii galiyay. Qorigani waxuu khaasatan caan ku ahaa in uu sameeyo qiiq badan marka la shido. Waxa uu bilaabay fuullidii, isaga oo ilkaha ku haya dhanka qaboow ee qoriga qiiqaya.
 
 ##
-Markiiba waxa uu maqlay shinnida codkeedii. Waxa ay ka soo baxaysay marna gelaysay shinniddu meel godan oo geedka jirridddiisa ah - oo ahayd hoygeeda. Markii uu Gingile gaaray hoygii shinnida waxa uu qorigu dhankii uu ka qiiqayey xaluuliyey meeshii godnayd. Shinnidii dibbedda ayay u soo yaacday, iyada oo carreysan oo cartamaysa. Way baxsadeen waayo qiica ma jecla - aadna waa ay u qanqaniineen Gingile!
+Markiiba waxa uu maqli karay “sss-ssss” da dheer ee shinnida mashquulsan. Waxa ay ka galeysay kana soo baxaysay shinniddu meel dulleesha oo geedka jirriddiisa ah - hoygeeda. Markii uu Gingile gaaray hoygii shinnida waxa uu qorigi qiiqayay ku riixay meeshii duleeshay. Shinnidii banaanka ayay u yaacday, sababtoo ah ma jeclayn qiiqa - laakin intaa ka hor waxay Ginglie siiyeen xoogaa qaniinyo kulul!
 
 ##
-Markii ay shinnidii tagtay, Gingile waxa uu gacantiisa geliyey shabaqii malabku ku jiray. Waxa uu kala soo baxay xabag-barsheed weyn, oo ay miidi ka tifqayso, malab badanina ka buuxo. Waxa uu si taxaddar leh ugu riday xabag-barsheedkii kiish uu garabka ku sitay, geedkiina waa uu ka soo degay.
+Markii ay shinnidii tagtay, Gingile waxa uu gacantiisa ku riixay buulki malabku ku jiray. Waxa uu kala soo baxay gacan buuxdo xabag-barsheed, tiftifqayso malab iyo diirdiir cadcad oo buudhan. Waxa uu si taxaddar leh ugu riday xabag-barsheedkii kiish uu garabka ku sitay, geedkiina waa uu ka soo degay.
 
 ##
-Ngede waxa uu aad u fiiriniyay wax walba oo uu Gingile sameynayey. Waxa uu rajeynayey in uu uga tegi doono Shimbir-malabka oo uu ku abaalmarin doono cad weyn oo xabag-barsheed ah. Ngede laanba laan ayuu uga duulay, isaga oo hoos u soo daadegaya. Ugu dambeyn Gingile dhulka ayuu u soo daadegay. Ngede qar u dhow wiilka ayuu dul istaagay isaga oo sugaya abaalmarintiisii.
+Ngede waxa uu si xiiso leh u daawanayay wax walba oo uu Gingile sameynayey. Waxa uu sugayay in uu uga tago cad xabag-barsheed buurran ah Shimbir-malabka si mahad celin ah. Ngede laanba laan ayuu uga duulay, ugu na sii dhawaanayay dhulka. Ugu dambeyn Gingile geedka salkiisi ayuu gaadhay. Ngede dhagax u dhow wiilka ayuu dul istaagay waxuu na suggay abaalmarintiisii.
 
 ##
-Laakiin, Gingile inta uu dabkii damiyey, warrankiisiina qaatay ayuu gurigiisii iska aaday, isaga oo iska inkiraya shimbirkii. Ngede si carro leh ayuu u ciyey, "VIC-torr! VIC-torrr!" Gingile inta istaagay, oo shimbirkii eegay ayuu aad ugu qoslay. "Malab baad rabtaa, soo sidaa ma aha, saaxiib? Ha! Laakiin hawsha oo dhan aniga ayaa qabtay, aniga ayaana aad la ii qaniinay. Maxaan kuula qaybsanayaa malabkan macaan?" Dabadeedna wuu iska dhaqaaqay. Ngede aad ayuu u carooday! Ma ay ahayn in sidan loola dhaqmo! Lakiin wuu aargoosan doonaa!
+Laakiin, Gingile dabkii ayuu damiyey, warrankiisii na qaatay oo socodkii gurigiisa billaabay, isaga oo inkiraya shimbirki. Ngede si carro leh ayuu u ciyey, "Fiiq-fifiq-fiifiiq!” Gingile inta istaagay, oo shimbirki yaraa eegay ayuu aad ugu qoslay. "Waxa aad rabtaa xoogaa malab ah, ma rabtaa, saaxiib? Ha! Laakiin hawsha oo dhan aniga ayaa qabtay, aniga ayaana qaatay qaniiyo oo idil. Maxaan kuula qaybsadaa malabkan la jecelyahay?" Dabadeedna wuu iska dhaqaaqay. Ngede aad ayuu u carooday! Ma ay ahayn in sidan loola dhaqmo! Lakiin wuu aargoosan doonaa!
 
 ##
-Dhawr asbuuc ka dib ayuu maalin kale Gingile maqlay ci'da Ngede oo malab sheegaya. Waxa uu xusuustay malabkii macaanaa ee uu tusay maalin hore, si degdeg ah ayuuna u dabagalay shimbirkii mar kale. Sidii uu kaynta dhinaceeda ugu horkacayey Gingile, ayuu Ngede dul joogsaday geed weyn oo qodxo badan. "Ahh," Gingile ayaa ku fikiray. "Godka shinnidu ay malabka ku sameysaa waa in uu geedkan ku yaal." Markiiba degdeg ayuu dab u shitay oo uu geedkii u tafay, isaga oo qorigii qiicayey ilkihiisa ku haya. Ngede wuu nastay oo iska daawaday.
+Hal maalin asbuucyo badan kadib markale ayuu Gingile maqlay ci'da malab sheega ee Ngede. Waxa uu xusuustay malabkii macaanaa, si xiiso leh na u dabagalay shimbirkii mar kale. Sidii uu kaynta dhinaceeda ugu horkacayey Gingile, Ngede waxuu dul istaagay geed weyn oo qodxo dallad ah leh si uu ugu nasto. "Ahh," Gingile ayaa ku fikiray. "Godka shinnida geedkan un buu ku yaal." dhaqso ba waxuu samaystay dabkii si yaraa waxa uuna bilaabay in uu fuulo, laanti yarayd ee qiiqeysayna ilkaha ku sita. Ngede wuu fariistay oo iska daawaday.
 
 ##
-Gingile wuu sii tafay, isaga oo la yaabban sababta uu weli la maqli la'yahay codka shinnida. "Waxa laga yaabaa in uu godku gudaha sii jiro, " ayuu iskula hadlay. Kor ayuu u sii tafay laan kale. Laakiin halkii uu godkii shinnida ee malabku ku jiray uu ka arki lahaa, waxa uu indhaha ku dhuftay haramcad! Haramcaddu aad bay uga carootay in hurdadeedii si edebdarro ah looga dhabqiyey. Indhaha ayay isku kuduudday, afkeedana way kala qaadday iyada oo ilkaheeda waaweyn ee afka badan dibedda u soo saaraysa.
+Gingile wuu fuulay, la yaabbanaa sababta uu u maqli waayay “Sss-sss-sss” di caadiga ahayd. "Malaha godku gudaha geedka ayuu sii jiraa," ayuu ku fikiray. laan kale ayuu kor usii fuulay. Laakiin halkii godkii shinnida eegii lahaa, waxa uu indhaha ku dhuftay haramcad! Haramcaddu aad bay uga carootay in hurdadeedii si edeb darro ah looga dhexgalay. Indhaha ayay isku kuduudday, afkeedana way kala qaadday iyada oo ilkaheeda waaweyn ee afka badan dibedda u soo saaraysa.
 
 ##
-Gingile intii ayan haramcaddu dhirbaaxin, ayuu degdeg hoos ugaga dhaadhacay geedkii. Degdeggii uu ku dhaadhacayey awgii ayuu laan gafay, waxana uu si xun ugu dhacay dhulka oo canqawga ayuu ka murgudcay. Sidii ugu dhakhso badnayd ee uu u baxsan karayey ayuu u cararay isaga oo sii dhutinaya. Waa nasiibkiise, haramcaddu aad bay weli u sii hurdeysnayd oo ma ayan cayrsan karin wiilka. Ngede, Shimbir-malabkii, wuu aargoostay. Gingile isna cashar ayuu bartay.
+Intii ay haramcaddu weerarin Gingile, si degdeg ayuu hoos uga degay geedki. Degdeggii awgii ayuu laan gafay, waxa uu si shanqar culus leh ugu dhacay dhulka oo wareejiyay canqowgiisi. Sidii ugu dhakhsaha badneyd ee uu karay ayuu u dhutiyay. Nasiib lahaayaa, haramcaddu aad bay weli u sii hurdeysnayd haday cayrsan lahayd. Ngede, Shimbir-malabkii, wuu helay aargoosigi. Gingile na cashar ayuu bartay.
 
 ##
-Sidaa darteed, markii Gingile ay carruurtiisii maqleen sheekadii Ngede waxa ay noqdeen kuwo aad u ixtiraama shimbirkii yaraa. Mar walba oo ay malab soo gurtaanna, waxa ay uga tegi jireen xabagbarsheedka ugu weyn Shimbir-malabka!
+Sidaa darteed, markii Gingile ay carruurtiisa maqlaan sheekada Ngede waxa ay ixtiraam u qaadaan shimbirka yar. Mar walba oo ay malab soo gurtaan, waxa ay xaqiijiyaan in ay qeybta ugu weyn xabad barsheeedka uga tagaan shimbir malabka!
 
 ##
 * License: [CC-BY]

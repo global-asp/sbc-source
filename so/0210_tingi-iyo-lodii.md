@@ -1,37 +1,37 @@
-# Tingi iyo lodii
+# Tingi iyo lo’dii
 
 ##
 Tingi waxuu la noolaa ayaydiis hooyo.
 
 ##
-Waxuu la raaci jiray loda ayaydiis.
+Waxuu lo’da la raaci jiray ayada.
 
 ##
 maalin ayaa waxaa yimid askartii.
 
 ##
-Waxay kaxaysteen lodii.
+Waxay kaxaysteen lo’dii.
 
 ##
-Tingi iyo ayaydiis way carareen wayne dhuunteen.
+Tingi iyo ayaydiis way carareen waa ayna dhuunteen.
 
 ##
 Waxay isku qariyeen duurka ilaa iyo habeenkii.
 
 ##
-Kadib askartii ayaa soo labteen.
+Kadib askartii ayaa dib ugu soo labteen.
 
 ##
-Ayaydii waxay ku qarisay Tingi caleemaha hoostooda.
+Ayaydii waxa ay Tingi ku qarisay caleemaha hoostooda.
 
 ##
-Mid ka mid ah askartii ayaa cagihiisa saaray Tingi, laakiin wuu iska aamusnaa.
+Mid ka mid ah askartii ayaa lugtiisa midig saaray Tingi, laakiin wuu iska aamusnaa.
 
 ##
-Markaay nabad dareemen, Tingi iyo ayaydiis hooyo ayaa soo baxay.
+Markii ay nabad noqdeen, Tingi iyo ayaydiis hooyo banaanka ayey usoo baxeen.
 
 ##
-Waxay u soo humbaaleeyen dhanki guriga.
+Waxa ay u soo guurguurteen guriga si aad u shanqar yar.
 
 ##
 * License: [CC-BY]

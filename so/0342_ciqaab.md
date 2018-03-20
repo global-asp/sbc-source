@@ -10,7 +10,7 @@ Maalin maalmaha ka mid ah, hooyo waxay heshay miro badan.
 Walaalkay Rahim waa iiman layahay. Wuxuu dhadhamiyaa midhaha oo dhan. Wuxuu cunaa wax badan.
 
 ##
-"Bal eeg waxuu Rahim sameeyey!" Waxaa ku qayliyay walaalkayga  yar. "Rahim waa dabeecad laawe iyo bakhayl," Ayaan leeyahay.
+"Bal eeg waxuu Rahim sameeyey!" Waxaa ku qayliyay walaalkayga yar. "Rahim waa laawe iyo bakhayl," Ayaan leeyahay.
 
 ##
 Hooyo waxay u caraysantahy Rahim.
@@ -19,7 +19,7 @@ Hooyo waxay u caraysantahy Rahim.
 Waxaan sidokale u caraysannahy Rahim. laakin Rahim kama xumo.
 
 ##
-Miyaadan u soconin inaad ciqqabto Rahim? "Ayuu waydiiyay  walaalkayga yar.
+Miyaadan u soconin inaad ciqaabto Rahim? "Ayuu waydiiyay walaalkayga yar.
 
 ##
 "Rahim, dhakhso waad kashalaayi doontaa," hooyo ayaa oga digtay.
@@ -28,10 +28,10 @@ Miyaadan u soconin inaad ciqqabto Rahim? "Ayuu waydiiyay  walaalkayga yar.
 Rahim ayaa billaabay inuu dareemo xanuun.
 
 ##
-" Caloosha ayaa aad icanuunayso," Rahim ayaa kuga nuunacay.
+" Caloosha ayaa aad ixanuunayso," Rahim ayaa ku gunuunacay.
 
 ##
-Hooyo ayaa garanaysay iney taas dhacayso. mirihii ayaa ciqaabay Rahim.
+Hooyo ayaa garanaysay in ay taas dhacayso. mirtii ayaa ciqaabeyso Rahim!
 
 ##
 Ogu danbeytii, Rahim ayaa nagu yidhi waan ka xumahay. "Marnaba ma noqon doono mid hunguri wayn," ayuu balanqaaday, waana aaminay dhammaanteen isaga.

@@ -19,10 +19,10 @@ Waan la gambin karaa.
 Waan la darbeyn karaa.
 
 ##
-Waan la dhuman karaa.
+Waan la baxsan karaa.
 
 ##
-Lakin waligey lama duuli kari.
+Lakin marna lama duuli karo.
 
 ##
 * License: [CC-BY-NC]
