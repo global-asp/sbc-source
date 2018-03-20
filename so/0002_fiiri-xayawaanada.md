@@ -1,4 +1,4 @@
-# Fiiri xayawaanada.
+# Fiiri xayawaanada
 
 ##
 Fiiri xayawaanada.
