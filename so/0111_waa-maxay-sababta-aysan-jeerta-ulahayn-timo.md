@@ -7,7 +7,7 @@ Maalin maalmaha ka mid ah, Bakayle ayaa socday wabiga qarkiisa.
 Jeerta na waa ay joogtay, ayadoo u socoto damaashaad iyo cunnida xoogaa caws fiican oo cagaaran.
 
 ##
-Jeerta ma aysan arkayn bakaylaha in uu joogo meeshaas waxayna si kama ah ayey ugu istaagtay cagti bakaylaha. Bakaylihii wuxuu bilaabay inuu ku qayliyo jeerta, "Adiga Jeer! Miyaadan arag in aad ku taagantahay cagtayda?”
+Jeerta ma aysan arkayn bakaylaha in uu joogo meeshaas waxayna si kama ah ayey ugu istaagtay cagti bakaylaha. Bakaylihii wuxuu bilaabay inuu ku qayliyo jeerta, "Adiga Jeer! Miyaadan arag in aad ku taagantahay cagtayda?"
 
 ##
 Jeertii waxay raaligelisay Bakaylihi, "Waan ka xumahay, kuma aanan arkaynin, Fadlan i cafi!" Laakiin bakaylihii ma dhageysan oo waxuu ku qeyliyay Jeertii, "Waxaad u sameysay kas! Maalin, un waad arki doontaa, in aad guddo!"

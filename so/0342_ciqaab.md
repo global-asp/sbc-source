@@ -4,37 +4,37 @@
 Maalin maalmaha ka mid ah, hooyo waxay heshay miro badan.
 
 ##
-"Goorma ayaan heli karnaa xogaa miro ah?" ayaan weydiisanay. "Waxaan cuni doonaa mirihii cawa," ayay tiri hooyo.
+"Goormaa wax miro ah heleynaa?" ayaan weydiinay. "Waxaan miraha cuni doonaa caawa," ayay tiri hooyo.
 
 ##
-Walaalkay Rahim waa iiman layahay. Wuxuu dhadhamiyaa midhaha oo dhan. Wuxuu cunaa wax badan.
+Walaalkay Rahim waa mid dhuuni ah. Waxa uu dhadhamiyaa midhaha oo dhan. In badan na waa uu ka cunaa.
 
 ##
-"Bal eeg waxuu Rahim sameeyey!" Waxaa ku qayliyay walaalkayga yar. "Rahim waa laawe iyo bakhayl," Ayaan leeyahay.
+"Bal eeg waxuu Rahim sameeyey!" Waxaa ku qayliyay walaalkayga yar. "Rahim waa akhlaaq la aan iyo bakhayl," Ayaan dhahaa.
 
 ##
 Hooyo waxay u caraysantahy Rahim.
 
 ##
-Waxaan sidokale u caraysannahy Rahim. laakin Rahim kama xumo.
+Waxaan sidoo kale u caraysannahay Rahim. laakin Rahim kama xumo.
 
 ##
-Miyaadan u soconin inaad ciqaabto Rahim? "Ayuu waydiiyay walaalkayga yar.
+Miyaadan u soconin in aad ciqaabto Rahim? "Ayuu waydiiyay walaalkayga yar.
 
 ##
-"Rahim, dhakhso waad kashalaayi doontaa," hooyo ayaa oga digtay.
+"Rahim, dhakhso waad kashalaayi doontaa," hooyo ayaa ugu digtay.
 
 ##
 Rahim ayaa billaabay inuu dareemo xanuun.
 
 ##
-" Caloosha ayaa aad ixanuunayso," Rahim ayaa ku gunuunacay.
+" Caloosha ayaa aad i xanuunayso," Ayuu Rahim ku gunuunacay.
 
 ##
-Hooyo ayaa garanaysay in ay taas dhacayso. mirtii ayaa ciqaabeyso Rahim!
+Hooyo ayaa garanaysay in ay taas dhacayso. Mirtii ayaa ciqaabeyso Rahim!
 
 ##
-Ogu danbeytii, Rahim ayaa nagu yidhi waan ka xumahay. "Marnaba ma noqon doono mid hunguri wayn," ayuu balanqaaday, waana aaminay dhammaanteen isaga.
+Ogu danbeytii, Rahim ayaa nagu yidhi waan ka xumahay. "Marnaba markale ma noqon doono mid saaid dhuuni u ah," ayuu balanqaaday, waana aaminnay dhammaanteen isaga.
 
 ##
 * License: [CC-BY]

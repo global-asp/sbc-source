@@ -1,16 +1,16 @@
-# Tingi iyo lo’dii
+# Tingi iyo lo'dii
 
 ##
 Tingi waxuu la noolaa ayaydiis hooyo.
 
 ##
-Waxuu lo’da la raaci jiray ayada.
+Waxuu lo'da la raaci jiray ayada.
 
 ##
 maalin ayaa waxaa yimid askartii.
 
 ##
-Waxay kaxaysteen lo’dii.
+Waxay kaxaysteen lo'dii.
 
 ##
 Tingi iyo ayaydiis way carareen waa ayna dhuunteen.

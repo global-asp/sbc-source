@@ -7,10 +7,10 @@ Beerta ayeeyo waa mid cajiib ah, oo uu ka buuxo hadhuudh, masago, iyo xajmiga. L
 Maalin maalmaha ka mid ah waxaan arkay dambiil weyn oo caws kasamaaysan oo la dhigay qorraxda banaanka guriga ayeeyo. Markii aan weydiiyay waxa ay ahayd, jawaabta kaliya ee aan helay waxay ahayd, "Waa danbiishaydii mucjisada." Danbiisha waxaa ku xigay, caleemo badan oo moos kuwaas oo ayeeyo isku badbadalaysay waqti ka waqti. Waan xiiseynayey. "Waa maxay caleemaha, ayeeyo?" ayaan weydiiyay. Jawaabta kaliya ee aan helay waxay ahayd, "Waxay yihiin caleemihii mucjisadayda."
 
 ##
-Waxaay ahayd mid aad u xiiso leh daawashada ayeeyo, mooska, caleemaha mooska iyo dambiisha cawska ka samaysan. Laakiin ayeeyo waxay ii dirtay hooyaday si aan shaqo yar ugu qabto. "Hooyo, fadlan, aan daawado saad u diyaarinayso ..." "Ha noqonin mid madax adag, ilmo, samee sidii laguu sheegay," ayay ku adkaysatay. Orod baan ooga tagay.
+Waxaay ahayd mid aad u xiiso leh daawashada ayeeyo, mooska, caleemaha mooska iyo dambiisha cawska ka samaysan. Laakiin ayeeyo waxay ii dirtay hooyaday si aan shaqo yar ugu qabto. "Hooyo, fadlan, aan daawado saad u diyaarinayso..." "Ha noqonin mid madax adag, ilmo, samee sidii laguu sheegay," ayay ku adkaysatay. Orod baan ooga tagay.
 
 ##
-Markii aan ku soo laabtay, ayeeyo waxay fadhiday banaanka, laakiin dambiil ama moos toona ma oolin. "Ayeeyo, aaway dambiishii, aaway mooskii oo dhan, iyo aaway ..." Laakiin jawaabta kaliya ee aan helay ayaa ahayd, "Waxay ku jiraan goobtaydii mucjisada." Waxay ahayd niyadjab!
+Markii aan ku soo laabtay, ayeeyo waxay fadhiday banaanka, laakiin dambiil ama moos toona ma oolin. "Ayeeyo, aaway dambiishii, aaway mooskii oo dhan, iyo aaway..." Laakiin jawaabta kaliya ee aan helay ayaa ahayd, "Waxay ku jiraan goobtaydii mucjisada." Waxay ahayd niyadjab!
 
 ##
 Labo maalmood ka dib, ayeeyo ayaa ii dirtay si aan oogu soo qaado bakooradeedii qolkeeda jiifka. Isla markii aan furay albaabka, waxaa i soo dhaweeyay carafta xooggan ee mooska. Qolka gudahiisa waxaa ku jiray dambiishii weynayd ee mucjisada. Waxaa si fiican u qariyey buste duug ah. Kor ayaan uga qaaday waana uriyay caraftii wanaagsaneyd.

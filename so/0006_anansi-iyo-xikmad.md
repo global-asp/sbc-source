@@ -1,7 +1,7 @@
 # Anansi iyo xikmad
 
 ##
-Waagii hore dadku waxba ma aysan aqoon. Ma aynan aqoon sida miro loo beero ama sida dhar loo sameeyo ama sida bir qalab looga sameeyo. Illaaha cirka Nyame ee cirka kor ayaa lahaa xikmadi aduunka oo idil. Waxa uu na ku kaydiyey dhari dhoobo ah.
+Waagii hore dadku waxba ma aysan aqoon. Ma aynan aqoon sida miro loo beero ama sida dhar loo sameeyo ama sida bir qalab looga sameeyo. Illaaha cirka kore ee Nyame ayaa lahaa xikmadi aduunka oo idil. Waxa uu na ku kaydiyey dhari dhoobo ah.
 
 ##
 Maalin maalmaha ka mid ah, Nyame waxuu goansaday in uu dhariga xikmada ah siiyo Anansi. Mar walba oo uu Anansi eego gudaha dhariga dhoobada ah, waxuu bartaa wax cusub. Waxa ayna ahayd arin aad u xiiso badan!

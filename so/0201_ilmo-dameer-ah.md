@@ -2,7 +2,7 @@
 
 ##
 Gabar yar ayaa aragtay muuqaal
- Aan la garaneyn oo masaafo ka muuqdo.
+ aan la garaneyn oo masaafo ka muuqdo.
 
 ##
 Markii uu muuqaalki soo dhowaaday, waxa ay aragtay in ay tahay haweeney xaamilo culus ah.
@@ -11,10 +11,10 @@ Markii uu muuqaalki soo dhowaaday, waxa ay aragtay in ay tahay haweeney xaamilo 
 xishood laakiin geesi nimo, gabadhii waxa ay ku sii dhowaatay haweeneydii. "Waa in ay nala joogtaa," ayay gabadha dadkeedii go'aansadeen. "Iyada iyo ilmaheedaba waa aannu nabad gelinaynaa."
 
 ##
-Ilmaha ayaa soo dhakhso ba wadada soo galay. "Riix!" "Bustayaal la kaalaya!" "Biyo!" "Riiiiixxxx!!!"
+Ilmaha ayaa soo dhakhso ba wadada soo galay. "Riix!" "Bustayaal la kaalaya!" "Biyo!" "Riiiixxxxxx!!!"
 
 ##
-Laakiin markii ay ilmihii arkeen, qof walba gadaal ayuu argagax ula booday. "Dameer?!"
+Laakiin markii ay ilmihii arkeen, qof walba gadaal ayuu argagax ugu booday. "Dameer?!"
 
 ##
 Qof waliba muran ayuu bilaabay. "Waxa aynnu ballan qaadnay in aan ilmaha iyo hooyadaba nabad gelyo siinno, waana in aan sidaas yeelnaa," qaar baa sidaa yiri. "Laakiin waxa ay noo horseedi doonaan nasiib darro!" qaar kale ayaa sidaa iyana yiri.
@@ -35,31 +35,31 @@ Jahawareer iyo carro ayaa iskugu darsantay dameerkii. Sidan ma yeeli karo sidaan
 Dameerkii ceeb ayuu dareemay. Waxa aanu bilaabay in uu aad u ordo oo uu u cararo meel fog.
 
 ##
-Markii uu joogsaday, habeen bay ahayd, Dameerkiina waa uu lumay. "Aaa’i Aaa?" codkiisii ayaa dib ugu soo laabtay. Wuu cidlooday oo keligii ayaa uu noqday. Intuu isku duubay bur adag oo hoosta gashaday, ayuu hurdo aan farxadi ku jirin oo cidla' dareen ah la dhacay.
+Waqtigii uu joojiyay orodkii, habeen bay ahayd, Dameerkiina waa uu lumay. "Haa'i Aaa?" ayuu mugdigi uga dhex gunuunacay. "Haa'i Aaa?" Ayuu mugdiga ka daba dhahay. Waaxuu ahaa mid cidloobay. Intuu isku duuduubay sidii kubad adag, ayuu la dhacay hurdo dheer oo dhiban.
 
 ##
-Dameerkii waxa uu toosay isaga oo uu oday weyn dul taagan yahay. Odaga indhihiisii ayuu kor u eegay isaga oo ay xoogaa rajo ahi soo gashay.
+Dameerkii waxa uu toosay isaga oo oday la yaab leh hoos usoo eeegayo. Indhihi odayga ayuu eegay waxuu na billaabay inyar oo rajo ah in uu dareemo.
 
 ##
-Dameerkii waxa uu la joogay odagii, kaas oo baray xirfado badan oo ku saabsan sida loo badbaado. Dameerkii waxa uu noqday mid si fiican wax u dhegeysta waxna u barta, odaguna sidaa oo kale ayuu ahaa. Waa ay is caawin jireen, aadna waa ay u wada qosli jireen.
+Dameerkii waxa uu raacay si uu ula joogo odagii, kaas oo baray qaabab kala duwan oo ah sida loo noolaado. Dameerkii waxa uu noqday mid wax dhageystay oo na wax bartay, sidoo kale ayuu sameeyay odaygana. Waa ay is caawiyeen, waa ayna wada qosleen si wada jir ah.
 
 ##
 Subax subaxyada ka mid ah, ayaa uu odagii weyddiistay Dameerkii in uu u qaado buur dhaladeed.
 
 ##
-Markii ay kor u baxeen oo ay darruuro ku gedaaman yihiin ayay gam'een. Dameerkii waxa uu ku riyooday hooyadiis oo xanuunsanaysa oo isaga u yeeraysa. Balse markii uu toosay...
+meeel kore oo daruuraha ka mid ah ayey hurdo kula dul dhaceen. Dameerkii waxa uu ku riyooday hooyadiis oo xanuunsanaysa oo isaga u yeeraysa. Markii uu toosay na...
 
 ##
-... daruurihii iyo odagii saaxiibkii ahaaba, waa ay qarsoomeen.
+... daruurihii ayaa la libdhay asaga iyo saaxiibkiis ba, odayga duqa ahaa.
 
 ##
-Ugu dambeyntii dameerkii waa uu yiqiinsaday wixii uu sameyn lahaa.
+Ugu dambeyntii dameerkii waa uu ogaaday waxa in la sameeyo ah.
 
 ##
-Dameerkii waxa uu helay hooyadii, oo cidlootay una barooranaysa ilmaheedii lumay. Muddo dheer ka dib waa ay isku dhaygageen. Dabadeedna si kal iyo laab ah ayay isku habsiiyeen oo isugu dhegeen.
+Dameerkii waxa uu helay hooyadii, oo cidlootay una barooranaysa ilmaheedii lumay. Muddo dheer ayay is eegteen midba midka kale. Dabadeedna ihabisi siiyeen waliba si adag.
 
 ##
-Ilmihi dameerka ahaa iyo hooyadii waa ay wada koreen wax ayna heleen qaab badannoocyo badan oo ay ku wada noolaan karaan midba midka dhinaciisa. tartiib tartiib, dhinacyadooda oo dhan, qoysas ayaa bilaabay in ay soo dagaan.
+Ilmihi dameerka ahaa iyo hooyadii waa ay wada koreen waxa ayna heleen qaabab badan oo ay ku wada noolaan karaan midba midka kale dhiniciisa. tartiib tartiib, dhinacyadooda oo dhan, qoysas ayaa bilaabay in ay soo dagaan.
 
 ##
 * License: [CC-BY]

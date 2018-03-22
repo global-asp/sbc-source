@@ -7,31 +7,31 @@ Waa baa waxaa jiray, qoys farxad ku nool.
 Weligood isma ayan dagaalin. Hawsha guriga iyo beertana waa ay ka caawin jireen waalidkood.
 
 ##
-Laakiin looma oggolayn in ay kul u dhowaadaan.
+Laakiin looma oggolayn in ay dab u dhowaadaan.
 
 ##
-Hawshooda oo dhanna waxa ay qabsan jireen habeenkii.
+Hawshooda oo dhanna waxa ay qabsan jireen habeenkii. Sababtoo ah waxaa ay ka sameysmaayeen xabaq!
 
 ##
-Mid wiilasha ka mid ah ayaa u jeelay in uu cadceedda mar u baxo.
+Laakiin Mid wiilasha ka mid ah ayaa u xiiso qabay in uu cadceedda u baxo.
 
 ##
-Oo maalin ayaa uu rabitaankiisu aad u xoogeystay. Walaalihiis ayaase uga digay...
+Hal maalin ayaa uu rabitaankiisu aad u xoogeystay. Walaalihiis ayaa uga digay...
 
 ##
-Digniinta oo soo daahday awgeed! Wiilkii mar hore ayuuba ku dhalaalay kulaylkii qorraxda.
+laakiin waa ay daahday! Qoraxda kulul ayuu ku dhalaalay.
 
 ##
 Carruur xabkeedkii aad bay uga murugoodeen in ay arkaan walaalkood oo dhalaalaya.
 
 ##
-Laakiin qorshe ayay degeen. Waxa ay u ekeysiiyeen haraagii xabagta dhalaashay shimbir.
+Laakiin qorshe ayay degeen. Waxa ay u ekeysiiyeen kuus xabagta dhalaashay ah shimbir.
 
 ##
-Waxa ay la aadeen shimbirkii walaalkood ahaa buur dheer dusheed.
+Waxa ay u qaadeen shimbirkii walaalkood ahaa buur dheer dusheeda.
 
 ##
-Oo markii ay qorraxdii soo baxday, ayuu duulay isaga oo ku heesaya kaaha waaga waaberri.
+Sidaastey qoraxda qorraxda usoo baxday na, waa uu duulay isaga oo ku dhex heesaya iftiinka arrooryaad.
 
 ##
 * License: [CC-BY]

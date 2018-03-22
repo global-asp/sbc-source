@@ -35,7 +35,7 @@ Maalin kasta waxay ku qasbanayd in ay wax kariso, nadiifiso oo u dhaqdo eeyga. D
 dhakhsaba sidaas tuu eeyga u tagay, Nozibele ayaa madaxa ka soosiibtay saddex timood. Waxay hal tin dhigtay sariirta hoosteeda, mid kalane albaabka gadaashiisa, midna gudaha xerada. Kadibna waxay u carartay guriga sida ugu dhakhsaha badan oo ay awooday.
 
 ##
-Markii eygii dib u soo laabtay, wuxuu raadiyay Nozibele. "Nozibele, xagee baad joogtaa?" ayuu ku qayliyey. " Waa ikan, sariirta hoosteeda," ayay yiri tintii ugu horraysay. " Waa ikan, albaabka ka gadaashiisa," ayay tiri tintii labaad. " Waa ikan, gudaha xerada," ayay tiri tintii saddexaad.
+Markii eygii dib u soo laabtay, wuxuu raadiyay Nozibele. "Nozibele, xagee baad joogtaa?" ayuu ku qayliyey. "Waa ikan, sariirta hoosteeda," ayay tiri tintii ugu horraysay. "Waa ikan, albaabka ka gadaashiisa," ayay tiri tintii labaad. "Waa ikan, gudaha xerada," ayay tiri tintii saddexaad.
 
 ##
 Dabadeed eeygii waxuu ogaaday in Nozibele ay sirtay. Sidaas darteed eeygii wuu orday oo ku orday wadadi illaa iyo tuulada. Laakiin walaalaha Nozibele ayaa halkaas ku sugayay iyagoo ulo waaweyn. Eeygii wuu jeestay oo wuu cararay, waligiisna dib looma arag.

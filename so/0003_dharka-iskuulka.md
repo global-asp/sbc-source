@@ -22,7 +22,7 @@ Sharaabaadaha waa kuwo gaaban.
 Laakiin kabahani waa kuwo cusub.
 
 ##
-...si fiican bey ula egyihiin.
+... si fiican bey ula egyihiin.
 
 ##
 * License: [CC-BY-NC]

@@ -34,7 +34,7 @@ Markiiba, masaftii wuu martay. Tom waxa uu tirsaday lacagtii uu shaqeystay.
 Dabadeed Tom waxa uu gatay saabbuun, sonkor iyo rooti. Alaabtii waxa uu ku qaatay masaftiisii.
 
 ##
-Tom madaxa ayuu saartay masaftii oo waxa uu aaday gurigiisii.
+Tom madaxa madaxa ayuu ku miisaantay masafti gugiisa ayuu na aaday.
 
 ##
 * License: [CC-BY]

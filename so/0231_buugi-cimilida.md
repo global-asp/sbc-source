@@ -10,16 +10,16 @@ Qoraxda waa kulayl.
 waa dabayl.
 
 ##
-waa daruur.
+waa daruur. 
 
 ##
 Waa qabow.
 
 ##
-roob baa da’ayo.
+roob baa da'ayo.
 
 ##
-Jac baa jirta.
+Jac baa jirta. 
 
 ##
 Waxaan arkaa qaanso roobaad.

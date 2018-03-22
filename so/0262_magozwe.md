@@ -1,34 +1,34 @@
 # Magozwe
 
 ##
-Magaaladda mashquulka ah ee Nayroobi, oo ka fogeyd nolol daryeel oo gurigeeda ah, ayaa waxaa ku noolaa koox wiilal ah oo hoy la'aan ah. Waxay soo dhaweeyeen maalin kasta sidii ay u timid. Subax subxaha kamid ah, wiilasha ayaa bacda laalaaban hayay ka dib markii ay seexdeen wadooyinka qabow. Si aay isaga kiciyaan qabowga waxay dabka ku shiden qashin. Kooxdan wiilasha ah waxaa kujiray Magozwe. Wuxuu ahaa kan ugu yar.
+Gudaha magaaladda mashquulsan ee Nayroobi, ee ka fog daryeel nolol ee guriga, waxaa ku noolaa koox wiilal ah oo hoy la'aan ah. Waxay soo dhaweeyeen maalin kasta sidii ay u timid. Subax subxaha kamid ah, wiilasha ayaa darimahooda laablaabanayay ka dib ku seexashadi wadada qaboow qarkeeda. Si aay isaga kiciyaan qabowga waxay shiteen dab qashin lagu shiday. Kooxdan wiilasha ah waxaa ka mid ahaa Magozwe. Wuxuu ahaa kan ugu yar.
 
 ##
-Markii waalidkii Magozwe dhinteen, wuxuu ahaa shan sano jir. Wuxuu aaday adeerkii si uu ula noolaado. Ninkani ma daryeeleyn ilmaha. Ma uusan siin Magozwe cunto ku filan. Wuxuu u yeelay wiilka in uu qabto shaqo badan oo adag.
+Markii waalidkii Magozwe dhinteen, wuxuu ahaa shan sano jir. Wuxuu aaday adeerkii si uu ula noolaado. Ninkani ma daryeeleyn ilmaha. Ma uusan siin Magozwe cunto ku filan. Wuxuu ka yeelay wiilka in uu qabto shaqo badan oo adag.
 
 ##
-Haddii Magozwe uu ka cawdo ama su'aalo, adeerkiis ayaa garaaci. Markii uu Magozwe weydiistay inuu dugsiga aadi karo, adeerkiis ayaa garaacay oo wuxuu ku yidhi, "Aad ayaad nacas u tahay inaad wax barato." Saddex sano ka dib, Magozwe ayaa ka cararay adeerkiis. Wuxuu bilaabay inuu ku noolaado waddada.
+Haddii Magozwe uu ka cawdo ama su'aalo, adeerkiis ayaa garaaci. Markii uu Magozwe weydiistay inuu iskuul aadi karo, adeerkiis ayaa garaacay oo ku yidhi, "Aad ayaad nacas u tahay in aad wax barato." Saddex sano oo loola dhaqmayay Magozwe waa uu ka cararay adeerkii. Wuxuu bilaabay in uu ku noolaado waddada.
 
 ##
-Nolosha waddadu way adkayd, badankodne wiilasha ayaa maalin walba la halgamayay si ay cunto u helaan. Mararka qaarkood waa laxiraayay, mararka qaarkood waa la garaacaayay. Markii ay xanuunsadaan, ma jirin cid caawisa. Kooxdu waxay ku tiirsanayd lacagta yar ee ay tuugsiga ku soohelen, iyo inay iibiyaan bacaha iyo dib-u-warshadaynta kale. Noloshu waxay ahayd mid ka sii adag sababtoo ah dagaalyahanno kooxo isku dhafan oo doonaya in ay kontaroolaan qaybo ka mid ah magaalada.
+Nolosha waddadu way adkayd, badankoodna wiilasha waxa ay maalin walba la halgamayay si ay cunto u helaan. Mararka qaarkood waa laxiraayay, mararka qaarkood waa la garaacaayay. Markii ay xanuunsadaan, ma jirin cid caawisa. Kooxdu waxay ku tiirsanayd lacagta yar ee ay tuugsiga ku soo helaan, iyo iibinta caagadaha iyo dib-u-warshadaynta kale. Noloshu waxa ahayd mid sii adag sababtoo ah dagaalo lala galo kooxo cadow ah oo rabo in ay maamulaan qeybo kamid ah magaalada.
 
 ##
-Maalin maalmaha ka mid ah markii uu Magozwe fiirinayay weelka qashinka lagurido, wuxuu helay buug sheeko oo gaboobay oo dildilaaacsan. Waxuu ka nadiifiyey wasakhdii waxuuna ku ritay jawankiisa. Maalin kasta marka ka dib wuxuu qaadan jiray buugga oo eegijiray sawirada. Ma uusan aqoonin sida loo akhriyo ereyada.
+Maalin maalmaha ka mid ah markii uu Magozwe fiirinayay weelka qashinka lagurido, wuxuu helay buug sheeko oo gaboobay oo dildilaaacsan. Waxuu ka nadiifiyey wasakhdii waxuuna ku ritay jawankiisa. Maalin walbo malintaa kadib wuxuu soo bixin jiray buugga oo eegi jiray sawirada. Ma uusan aqoonin sida loo akhriyo ereyada.
 
 ##
-Sawirada ayaa u sheegijiray sheeko uu wiil yar oo koray inuu noqdo duuliye. Magozwe wuxuu kuriyoon hayay malin cad in uu noqdo duuliye. Mararka qaar, wuxuu u maleynayay in uu ahaa wiilka sheekada.
+Sawirada waxay sheegi jireen sheeko wiil weynaaday sii u noqdo duuliye. Magozwe wuu maalin riyoon jiray isagoo ah duuliye. Mararka qaar, waxuu niyeysan jiray in uu yahay wiilka sheekada ku jiro.
 
 ##
-Waxay ahayd qabow, Magozwe ayaa istaagnaa wadada asagoo tuugsan hayo. Nin baa xagiisa u soo dhaqaaqay. "Hello, waxaan ahay Thomas, waxaan ka shaqeyaa halkan dhaw, meel aad ka heli karto wax aad cunto," ayuu yiri ninkii. Waxa uu tilmaamay guri jaale ah oo leh saqaf buluug ah. "Waxaan rajeynayaa inaad halkaas aadi doonto si aad u hesho cunto?" ayuu weydiiyay. Magozwe wuxuu eegay ninkii, ka dibna guriga. "Waa laga yaabaa," ayuu yiri, wuuna ka dhaqaaqay.
+Waxay ahayd qabow, Magozwe waxa uu markale taagnaa wadada asagoo tuugsanayo. Nin baa xagiisa u soo dhaqaaqay. "Helo, waxaan ahay Thomas, waxaan ka shaqeyaa meel halkan u dhow, oo aad ka heli karto wax aad cunto," ayuu yiri ninkii. Waxa uu tilmaamay guri jaale ah oo leh saqaf buluug ah leh. "Waxaan rajeynayaa in aad halkaas aadi doonto si aad u hesho cunto?" ayuu weydiiyay. Magozwe wuxuu eegay ninkii, ka dibna guriga. "Waa laga yaabaa," ayuu yiri, wuuna ka dhaqaaqay.
 
 ##
-Bilihii ka dambeeyey, wiilashii hooy la'aanta ah waxay arki jireen Thomas. Wuxuu jeclaa in uu la hadlo dadka, gaar ahaan dadka ku nool jidadka. Thomas wuxuu dhageystay sheekooyinka nolosha dadka. Waxa uu ahaa mid aad udaneeyo una dulqaato, marnaba ma ahayn mid aan fiicneyn ama ixtiraam daran. Qaar ka mid ah wiilasha waxay bilaabeen inay aadaan guriga jaalaha iyo buluuga ah si ay cunto u helaan duhurnimadii.
+Bilihii ka dambeeyey, wiilashii hooy la'aanta ahaa waxay la qabsadeen araga Thomas meelaha ka dhow. Wuxuu jeclaa in uu la hadlo dadka, gaar ahaan dadka ku nool wadooyinka. Thomas wuxuu dhageystay sheekooyinka nolosha dadka. Waxa uu ahaa mid aad u daneeyo una dulqaato, marnaba ma ahayn mid kibro ama ixtiraam daran. Qaar ka mid ah wiilasha waxay bilaabeen in ay aadaan guriga jaalaha iyo buluuga ah si ay cunto u helaan duhurnimadii.
 
 ##
-Magozwe wuxuu fadhiistay wadada isaga oo eegaya buugiisa sawirka markuu Thomas u soo fadhiistay agtiisa. "Maxay sheekada ku saabsantahay?" waxaa weydiiyay Thomas. "Waxay ku saabsan tahay wiil yar oo noqday duuliye," ayuu yiri Magozwe. "Waa maxay magaca wiilka?" Waxaa weydiiyay Thomas. "Ma aqaan, ma aqrin karo," ayuu yiri Magozwe oo si hoose u sheegay.
+Magozwe wuxuu fadhiyay wadada qarkeeda isaga oo eegaya sawirka buugiisa markuu Thomas soo fadhiistay agtiisa. "Maxay sheekada ku saabsantahay?" Ayuu Thomas weydiiyay. "Waxay ku saabsan tahay wiil yar oo noqday duuliye," ayuu Magozwe ku jawaabay. "Waa maxay magaca wiilka?" Ayuu Thomas weydiiyay. "Ma aqaan, ma aqrin karo," ayuu Magozw si hoos ah u yidhi.
 
 ##
-Markii ay kulmeen, Magozwe wuxuu bilaabay in uu sheekadiisa u sheego Thomas. Waxay ahayd sheekadii adeerkiis iyo sababta uu ooga sootagay. Thomas lama hadlin wax badan, mana u sheegin Magozwe waxa uu sameyn lahaa, laakiin had iyo jeer wuxuu u dhageystay si taxadar leh. Mararka qaarkood waxay way sheekaysan jireen markii ay ku cunaayan guriga leh saqafka buluugga ah.
+Markii ay kulmeen, Magozwe wuxuu bilaabay in uu sheekadiisa u sheego Thomas. Waxay ahayd sheekadii adeerkiis iyo sababta uu ooga soo tagay. Thomas lama hadlin wax badan, mana u sheegin Magozwe waxa uu sameyn lahaa, laakiin marwalba wuxuu u dhageystaa si taxadar leh. Mararka qaark way hadli jireen markii ay ku cunaayan guriga leh saqafka buluugga ah.
 
 ##
 Maalintii tobnaad dhalashada Magozwe wuxuu Thomas siiyey buug sheeko oo cusub. Waxay ahayd sheeko ku saabsan wiil yar oo tuulo joogay oo koray si uu u noqdo ciyaaryahan caan ah. Thomas wuxuu sheekadaas u akhriyey Magozwe marar badan, ilaa hal maalin ayuu yiri, "Waxaan u maleynayaa inay tahay waqtigii aad tagtay dugsiga aadna baratay si aad u akhrido. Maxaad u malaynaysaa?" Thomas wuxuu sharxay inuu ogaa meel ay carruurtu joogi karaan, oo aadaan dugsi.
