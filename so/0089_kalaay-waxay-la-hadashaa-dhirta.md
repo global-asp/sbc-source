@@ -1,7 +1,7 @@
 # Kalaay waxay la hadashaa dhirta
 
 ##
-Tani waa Kalaay. Waxay jirtaa toddoba sano. Magaceeda macnihiisa waa 'midda wanaagsan' luqaddeeda, Lubukusu.
+Tani waa Kalaay. Waxay jirtaa toddoba sano. Magaceeda macnihiisa waa "midda wanaagsan" luqaddeeda, Lubukusu.
 
 ##
 Kalaay way soo toostaa waxeyna lahadashaa geedka liinta ah. "Fadlan geedka liinta ahoow, weynoow oo na sii liin badan oo bissil."

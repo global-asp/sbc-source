@@ -13,7 +13,7 @@ Jeerta ma aysan arkayn bakaylaha in uu joogo meeshaas waxayna si kama ah ayey ug
 Jeertii waxay raaligelisay Bakaylihi, "Waan ka xumahay, kuma aanan arkaynin, Fadlan i cafi!" Laakiin bakaylihii ma dhageysan oo waxuu ku qeyliyay Jeertii, "Waxaad u sameysay kas! Maalin, un waad arki doontaa, in aad guddo!"
 
 ##
-Bakaylihii waxuu raadiyay dab, wuxuuna ku yidhi, "Orod, soo gub Jeerta marka ay banaanka uga soo baxdo biyaha si ay u cunto caws. way igu istaagtay!" Dabka ayaa ku jawaabay, "Dhib malaha, Bakayle, saaxiibkay. waxaan sameyn doonaa waxaad i weydiisay."
+Bakaylihii waxuu raadiyay dab, wuxuuna ku yidhi, "Orod, soo gub Jeerta marka ay banaanka uga soo baxdo biyaha si ay u cunto caws. Way igu istaagtay!" Dabka ayaa ku jawaabay, "Dhib malaha, Bakayle, saaxiibkay. Waxaan sameyn doonaa waxaad i weydiisay."
 
 ##
 Xoga kadib, Jeertii waxay ka cunaysay caws meel ka fog webiga marki, "bul!" Dab holac isku badalay. Dabkii waxuu bilaabay in uu gubo timihii Jeerta.

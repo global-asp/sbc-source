@@ -7,22 +7,22 @@ Aaway yaanyuurtaydii?
 Ma sariirta ayey ku hoos jirtaa?
 
 ##
-ma armaajada ayay kor saarantahay?
+Ma armaajada ayay kor saarantahay?
 
 ##
-ma fadhiga ayay gadaal kajirtaa?
+Ma fadhiga ayay gadaal kajirtaa?
 
 ##
-ma weelka qashinka ayay ku xigtaa?
+Ma weelka qashinka ayay ku xigtaa?
 
 ##
-ma dambiisha ayay ku dhex jirtaa?
+Ma dambiisha ayay ku dhex jirtaa?
 
 ##
-ma guriga banaankiisa ayay joogtaa?
+Ma guriga banaankiisa ayay joogtaa?
 
 ##
-waa tan halkan joogta!
+Waa tan halkan joogta!
 
 ##
 * License: [CC-BY-NC]

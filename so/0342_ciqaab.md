@@ -16,10 +16,10 @@ Walaalkay Rahim waa mid dhuuni ah. Waxa uu dhadhamiyaa midhaha oo dhan. In badan
 Hooyo waxay u caraysantahy Rahim.
 
 ##
-Waxaan sidoo kale u caraysannahay Rahim. laakin Rahim kama xumo.
+Waxaan sidoo kale u caraysannahay Rahim. Laakin Rahim kama xumo.
 
 ##
-Miyaadan u soconin in aad ciqaabto Rahim? "Ayuu waydiiyay walaalkayga yar.
+"Miyaadan u soconin in aad ciqaabto Rahim?" ayuu waydiiyay walaalkayga yar.
 
 ##
 "Rahim, dhakhso waad kashalaayi doontaa," hooyo ayaa ugu digtay.
@@ -28,7 +28,7 @@ Miyaadan u soconin in aad ciqaabto Rahim? "Ayuu waydiiyay walaalkayga yar.
 Rahim ayaa billaabay inuu dareemo xanuun.
 
 ##
-" Caloosha ayaa aad i xanuunayso," Ayuu Rahim ku gunuunacay.
+"Caloosha ayaa aad i xanuunayso," ayuu Rahim ku gunuunacay.
 
 ##
 Hooyo ayaa garanaysay in ay taas dhacayso. Mirtii ayaa ciqaabeyso Rahim!

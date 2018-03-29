@@ -7,7 +7,7 @@ Tingi waxuu la noolaa ayaydiis hooyo.
 Waxuu lo'da la raaci jiray ayada.
 
 ##
-maalin ayaa waxaa yimid askartii.
+Maalin ayaa waxaa yimid askartii.
 
 ##
 Waxay kaxaysteen lo'dii.

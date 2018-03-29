@@ -7,7 +7,7 @@ Tuulo ku taal dhinaca hooseyo buurta Kenya ee Bariga Afrika, gabar yar ayaa hooy
 Wangari bannaanka ayay aad u jeclaan jirtay. Baangad ayay ku qodqodday carrada beerta qoyskooda. Waxayna dhulka qandacsan ku aastay miro aad u yaryar.
 
 ##
-watigay ugu jeclayd maalinta waxa uu ahaa marka ay cadceeddu dhacdo. Marka ay mugdi saaid u noqoto aragtida dhirta, Wangari waxay ogaataa in ay tahay xilligii ay guriga aadi lahayd. Waxayna qaadaa waddoyin dhuudhuuban oo dhex maro beeraha, ayadoo gudbeyso webi yaal markay baxdo.
+Watigay ugu jeclayd maalinta waxa uu ahaa marka ay cadceeddu dhacdo. Marka ay mugdi saaid u noqoto aragtida dhirta, Wangari waxay ogaataa in ay tahay xilligii ay guriga aadi lahayd. Waxayna qaadaa waddoyin dhuudhuuban oo dhex maro beeraha, ayadoo gudbeyso webi yaal markay baxdo.
 
 ##
 Wangari waxa ay ahayd ilma farriid ah wayna sugi la eyd in ay iskuul aado. Laakiin hooyadeed iyo aabbaheed waxa ay doonayeen in ay joogto oo ay guriga ka caawiso. Markii ay toddoba jirsatay, walaalkeed ka weyn ayaa ku qalqaaliyey waalidkeed in ay u oggolaadaan in ay iskuul aaddo.
@@ -28,10 +28,10 @@ Markii ay wax barashadeedii dhammeysatay, waxa ay ku noqotay Kenya. Laakiin wada
 Wangari way garanysay waxa ay tahay in la sameeyo. Waxa ay bartay haweenkii sida dhirta miro looga abuuro. Haweenku dhirta ayay sii iibin jireen lacagta ka soo baxdana waxay u isticmaali jiren in ay qoysaskooda ku daryeelaan. Haweenkii waxa ay noqdeen kuwo faraxsan. Wangari ayaa ka caawisay in ay dareemaan awooddooda iyo xoog.
 
 ##
-waxuu waqti gudbo ba, dhirtii cusbeyd waxa ay noqotay kayn, webiyadiina mar kale ayay biyo keeneen. Farriintii Wangari, Afrika ayay ku faaftay. Maanta, malaayiin geedo ah ayaa ka soo baxay mirihii Wangari.
+Waxuu waqti gudbo ba, dhirtii cusbeyd waxa ay noqotay kayn, webiyadiina mar kale ayay biyo keeneen. Farriintii Wangari, Afrika ayay ku faaftay. Maanta, malaayiin geedo ah ayaa ka soo baxay mirihii Wangari.
 
 ##
-Wangari si adag ayay u shaqeysay. Dadka dunida oo dhan ayaa ogaaday, waxaa na la siiyey abaalmarin caan ah. Waxa la yiraahdaa the Nobel Peace Prize, waxa ayna noqotay haweeneyda ugu horeysay ee kaligeed Afrika laga siiyey abid.
+Wangari si adag ayay u shaqeysay. Dadka dunida oo dhan ayaa ogaaday, waxaa na la siiyey abaalmarin caan ah. Waxa la yiraahdaa Abaalmarinta Nabada ee Nobel, waxa ayna noqotay haweeneyda ugu horeysay ee kaligeed Afrika laga siiyey abid.
 
 ##
 Wangari waxa ay dhimatay 2011, laakiin waa aannu xusuusannaa mar walba oo aan aragno geed qurux badan.

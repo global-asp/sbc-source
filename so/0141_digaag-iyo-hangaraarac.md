@@ -10,7 +10,7 @@ Waxay aadeen garoonka kubada cagta waxayna bilaabeen ciyaartooda. Digaagadu waxa
 Waxay go'aansadeen in ay ciyaaraan gool ku laad. Waxaa goolhaye ku hormaray hangaraarici. Digaagtii waxay dhalisay hal gool oo kaliya. Kadibna waxay ahayd digaaggada markeedi in ay difaacdo goolka.
 
 ##
-Hangaraarici wuu darbeeyay kubadii waa uu na dhaliyay. Hangaraarici ayaa soo ceyriyay kubada wuuna dhaliyay. Hangaraaraci ayaa madaxa ku soo tuuray kubada wuuna dhaliyay. hangaraarici waxa uu dhaliyay shan gool.
+Hangaraarici wuu darbeeyay kubadii waa uu na dhaliyay. Hangaraarici ayaa soo ceyriyay kubada wuuna dhaliyay. Hangaraaraci ayaa madaxa ku soo tuuray kubada wuuna dhaliyay. Hangaraarici waxa uu dhaliyay shan gool.
 
 ##
 Digaaggadu waxay ka cadhootay in ay guuldareysatay. Waxay ahayd kuuldareyste aad u xun. Hangaraarac waxuu bilaabay in uu qoslo sababtoo ah saaxiibkiisa ayaa ahaa mid sidaas u buuqa.
@@ -22,7 +22,7 @@ Digaaggadii aad ayay u xanaaqday oo waxay aad ukala qaaday afkeedii waxayna liqd
 Iyadoo digaaggadi u soo socotay guriga, waxay la kulantay hangaraarac hooyadii. Hangaraarac hooyadii baa waydiisay, "Ma aragtay ilmahaygi?" Digaagada waxbo maysan odhan. Hooyadii Hangaraaraca ayaa walwashay.
 
 ##
-Kadibna Hooyadii Hangaraaraca waxay maqashay cod aad u yar. "Hooyo i caawi!" ayuu ku dhawaaqay codka. hooyadii Hangaraarac waxay fiirisay agagaarka oou dhageysatay si taxaddar leh. Codka ayaa ka yimid digaaggada dhexdeeda.
+Kadibna Hooyadii Hangaraaraca waxay maqashay cod aad u yar. "Hooyo i caawi!" ayuu ku dhawaaqay codka. Hooyadii Hangaraarac waxay fiirisay agagaarka oou dhageysatay si taxaddar leh. Codka ayaa ka yimid digaaggada dhexdeeda.
 
 ##
 Hooyadii Hangaraaraca ayaa ku qaylisay, "Isticmaal awooddaada khaaska ah cunugeyga!" Hangaraaracyaasha waxay samayn karaan shiir xun iyo dhadhan daran. Digaaggadii waxay bilawday in ay dareento xanuun.

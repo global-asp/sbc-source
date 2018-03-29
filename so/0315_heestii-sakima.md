@@ -25,7 +25,7 @@ Sakima wuxuu jeclaa in uu u heeso walaashiisa yar, gaar ahaan, haddii ay dareent
 "Ma heesi kartaa mar kale, Sakima," walaashiis ayaa ka baryi jirtay. Sakima waa uu ka aqbalaa oo ku celceliyaa heesta marar badan.
 
 ##
-hal fiid markii ay waalidkiis guriga ku soo laabteen, ayay aad u aamusnaayeen. Sakima wuxuu ogaa in ay wax qaldan jiraan.
+Hal fiid markii ay waalidkiis guriga ku soo laabteen, ayay aad u aamusnaayeen. Sakima wuxuu ogaa in ay wax qaldan jiraan.
 
 ##
 Maxaa qaldan hooyo, aabe? "Sakima ayaa waydiiyay. Sakima wuxuu ogaaday in wiilka ninkii hodanka ahaa uu maqan yahay, ninku wuxuu ahaa mid aad u murugooday oo cidloobay.

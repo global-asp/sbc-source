@@ -7,7 +7,7 @@ Tuuladayda waxay lahayd dhibaatooyin badan. Waxaan samaynay saf dheer si aan biy
 Waxaan sugnay raashin ay nagu deeqeen dad kale.
 
 ##
-waxaan xirnay guryahanaga amin hore sababta oo ah tuugo.
+Waxaan xirnay guryahanaga amin hore sababta oo ah tuugo.
 
 ##
 Caruur badan ayaa dugsiga ka baxday.

@@ -1,7 +1,7 @@
 # Digaagad iyo Galayr
 
 ##
-mar waayihi hore kamid ah, Digaagad iyo Galayr ayaa saaxiibbo ahaa. Waxa ay nabad oo la noolaayeen shimbiraha kale oo dhan. Midkoodna ma duuli karin.
+Mar waayihi hore kamid ah, Digaagad iyo Galayr ayaa saaxiibbo ahaa. Waxa ay nabad oo la noolaayeen shimbiraha kale oo dhan. Midkoodna ma duuli karin.
 
 ##
 Hal maalin, ayaa waxaa dhulka ka jirtay abaar. Galayrkii waxa ay u socotay meel aad u fog si ay cunto u hesho. Waa ay soo noqotay iyada oo aad u daallan. "Waa in ay jirtaa si sahlan oo loo safro!" Ayay tidhi Galayrkii.

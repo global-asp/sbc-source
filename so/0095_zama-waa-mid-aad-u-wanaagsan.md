@@ -28,7 +28,7 @@ Dabadeedna waan labistaa, "hadda waan weynahay Mama," ayaan dhahaa.
 Waxaan xidhi karaaguluusyadeeyda iyo suunka kabahayga.
 
 ##
-waxaan na hubiyaa in walaalkeyga yar uu yaqaano dhamaan wararka iskuulka.
+Waxaan na hubiyaa in walaalkeyga yar uu yaqaano dhamaan wararka iskuulka.
 
 ##
 Fasalka dhexdiisa waxaan ku dadaalayaa sida ugu fiican.

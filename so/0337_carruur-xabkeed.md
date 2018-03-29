@@ -19,7 +19,7 @@ Laakiin Mid wiilasha ka mid ah ayaa u xiiso qabay in uu cadceedda u baxo.
 Hal maalin ayaa uu rabitaankiisu aad u xoogeystay. Walaalihiis ayaa uga digay...
 
 ##
-laakiin waa ay daahday! Qoraxda kulul ayuu ku dhalaalay.
+Laakiin waa ay daahday! Qoraxda kulul ayuu ku dhalaalay.
 
 ##
 Carruur xabkeedkii aad bay uga murugoodeen in ay arkaan walaalkood oo dhalaalaya.

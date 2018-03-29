@@ -4,25 +4,25 @@
 Waxaan jeclahay in aan aqriyo.
 
 ##
-qofkeen u aqrin karaa?
+Qofkeen u aqrin karaa?
 
 ##
 Walaasheey waa ay hurudaa.
 
 ##
-qofkeen u aqrin karaa?
+Qofkeen u aqrin karaa?
 
 ##
 Hooyadey iyo ayeeyadey waa ay mashquulsanyihiin.
 
 ##
-qofkeen u aqrin karaa?
+Qofkeen u aqrin karaa?
 
 ##
 Aabahey iyo awoowgay waa ay mashquulsanyihiin.
 
 ##
-qofkeen u aqrin karaa?Aniga ayaa is ku aqrin karaayo.
+Qofkeen u aqrin karaa?Aniga ayaa is ku aqrin karaayo.
 
 ##
 * License: [CC-BY]

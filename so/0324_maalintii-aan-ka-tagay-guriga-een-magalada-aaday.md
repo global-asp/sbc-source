@@ -1,7 +1,7 @@
 # Maalintii aan ka tagay guriga een magalada aaday
 
 ##
-boosteejada yar ee tuuladeyna waxa ay aheyd mid mashquulsan dadka awgeed iyo bases la rar dhaafiyay. Dhulka xitaa waxaa yaalay wax badan oo in la raro aheyd. Kirishbooyada ayaa ku dhawaaqayay magacyada meelaha ay basaskooda u socdaan.
+Boosteejada yar ee tuuladeyna waxa ay aheyd mid mashquulsan dadka awgeed iyo bases la rar dhaafiyay. Dhulka xitaa waxaa yaalay wax badan oo in la raro aheyd. Kirishbooyada ayaa ku dhawaaqayay magacyada meelaha ay basaskooda u socdaan.
 
 ##
 "Magaalada, Magaalada, Waxuu u socdaa Galbeedka!" Ayaan maqalay kirishbooy ku dhawaaqaya. Kaasi ayaa ahaa baskii aan u baahnaa in aan raaco.

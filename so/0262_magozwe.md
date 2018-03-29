@@ -25,7 +25,7 @@ Waxay ahayd qabow, Magozwe waxa uu markale taagnaa wadada asagoo tuugsanayo. Nin
 Bilihii ka dambeeyey, wiilashii hooy la'aanta ahaa waxay la qabsadeen araga Thomas meelaha ka dhow. Wuxuu jeclaa in uu la hadlo dadka, gaar ahaan dadka ku nool wadooyinka. Thomas wuxuu dhageystay sheekooyinka nolosha dadka. Waxa uu ahaa mid aad u daneeyo una dulqaato, marnaba ma ahayn mid kibro ama ixtiraam daran. Qaar ka mid ah wiilasha waxay bilaabeen in ay aadaan guriga jaalaha iyo buluuga ah si ay cunto u helaan duhurnimadii.
 
 ##
-Magozwe wuxuu fadhiyay wadada qarkeeda isaga oo eegaya sawirka buugiisa markuu Thomas soo fadhiistay agtiisa. "Maxay sheekada ku saabsantahay?" Ayuu Thomas weydiiyay. "Waxay ku saabsan tahay wiil yar oo noqday duuliye," ayuu Magozwe ku jawaabay. "Waa maxay magaca wiilka?" Ayuu Thomas weydiiyay. "Ma aqaan, ma aqrin karo," ayuu Magozw si hoos ah u yidhi.
+Magozwe wuxuu fadhiyay wadada qarkeeda isaga oo eegaya sawirka buugiisa markuu Thomas soo fadhiistay agtiisa. "Maxay sheekada ku saabsantahay?" ayuu Thomas weydiiyay. "Waxay ku saabsan tahay wiil yar oo noqday duuliye," ayuu Magozwe ku jawaabay. "Waa maxay magaca wiilka?" ayuu Thomas weydiiyay. "Ma aqaan, ma aqrin karo," ayuu Magozw si hoos ah u yidhi.
 
 ##
 Markii ay kulmeen, Magozwe wuxuu bilaabay in uu sheekadiisa u sheego Thomas. Waxay ahayd sheekadii adeerkiis iyo sababta uu ooga soo tagay. Thomas lama hadlin wax badan, mana u sheegin Magozwe waxa uu sameyn lahaa, laakiin marwalba wuxuu u dhageystaa si taxadar leh. Mararka qaark way hadli jireen markii ay ku cunaayan guriga leh saqafka buluugga ah.

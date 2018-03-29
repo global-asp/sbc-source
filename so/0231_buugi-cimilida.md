@@ -1,25 +1,25 @@
-# buugi cimilida
+# Buugi cimilida
 
 ##
-waa qalayl.
+Waa qalayl.
 
 ##
 Qoraxda waa kulayl.
 
 ##
-waa dabayl.
+Waa dabayl.
 
 ##
-waa daruur. 
+Waa daruur.
 
 ##
 Waa qabow.
 
 ##
-roob baa da'ayo.
+Roob baa da'ayo.
 
 ##
-Jac baa jirta. 
+Jac baa jirta.
 
 ##
 Waxaan arkaa qaanso roobaad.
