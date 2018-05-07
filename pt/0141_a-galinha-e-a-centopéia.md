@@ -73,6 +73,6 @@ A partir desse dia, as galinhas e as centopéias eram inimigas.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration:
+* Illustration: Magriet Brink
 * Translation: Mikayla Rodrigues, Priscilla Freitas de Oliveira
 * Language: pt

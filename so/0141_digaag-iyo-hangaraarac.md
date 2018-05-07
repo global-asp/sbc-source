@@ -39,6 +39,6 @@ Laga soo bilaabo wakhtigaas, digaagga iyo hangaraacyaasha waxay is ku ahaayeen c
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Abdi Muse
 * Language: so

@@ -39,6 +39,6 @@ Tangu hapo, Kuku na Jongoo ni maadui.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Matteo E. Mwita
 * Language: sw

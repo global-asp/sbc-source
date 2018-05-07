@@ -39,6 +39,6 @@ Yeroo sanirraa qabee, lukkuuwanufi dhimilleen diina ta'an.
 ##
 * License: [CC-BY]
 * Text: Winny Asara
-* Illustration: Winny Asara
+* Illustration: Magriet Brink
 * Translation: Demoze Degefa
 * Language: om
