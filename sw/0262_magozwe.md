@@ -52,5 +52,5 @@ Magozwe alikuwa amekaa uani kwenye nyumba yenye paa la kijani, akisoma kitabu ch
 * License: [CC-BY]
 * Text: Lesley Koyi
 * Illustration: Wiehan de Jager
-* Translation: Lauwo George & Monica Shank Lauwo
+* Translation: Lauwo George, Monica Shank Lauwo
 * Language: sw

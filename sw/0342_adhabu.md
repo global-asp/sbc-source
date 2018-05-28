@@ -40,5 +40,5 @@ Baadaye, Rahim anatuomba msamaha. “Kamwe sitakuwa mlafi tena,” anaahidi. Na 
 * License: [CC-BY]
 * Text: Adelheid Marie Bwire
 * Illustration: Melany Pietersen
-* Translation: Monica Shank Lauwo & Lauwo George
+* Translation: Monica Shank Lauwo, Lauwo George
 * Language: sw
