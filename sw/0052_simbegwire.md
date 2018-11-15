@@ -7,10 +7,10 @@ Simbegwire alihuzunika mama yake alipofariki. Baba yake alijitahidi kumtunza mwa
 Siku moja baba yake Simbegwire alirudi nyumbani kwa kuchelewa. "Mwanangu uko wapi?" aliita. Simbegwire alimkimbilia baba yake. Alisimama ghafla baada ya kumwona baba yake akiwa ameshika mkono wa mwanamke. "Nataka ukutane na mtu muhimu, mwanangu. Huyu ni Anita," alisema huku akitabasamu.
 
 ##
-"Hujambo Simbegwire? Baba yako amenisimulia mengi kuhusu wewe," alisema Anita. Lakini hakutabasamu wala kumpa Simbegwire mkono. Baba yake Simbegwire alijaa na furaha. Aliongelea jinsi maisha yatakavyokuwa mazuri watatu hao wakiishi pamoja. "Mwanangu, ni matumaini yangu kuwa utamkubali Anita kuwa mama yako," alisema.
+"Hujambo Simbegwire? Baba yako amenisimulia mengi kukuhusu," alisema Anita. Lakini hakutabasamu wala kumpa Simbegwire mkono. Baba yake Simbegwire alijaa na furaha. Aliongelea jinsi maisha yatakavyokuwa mazuri watatu hao wakiishi pamoja. "Mwanangu, ni matumaini yangu kuwa utamkubali Anita kuwa mama yako," alisema.
 
 ##
-Maisha ya Simbegwire yakabadilika. Hakuwa na muda tena wa kukaa na baba yake asubuhi. Anita alimpa shughuli nyingi sana za ndani hadi alikuwa anachoka kiasi ya kushindwa kufanya kazi zake za shuleni jioni. Alikuwa anaenda moja kwa moja kulala baada ya chakula cha jioni. Faraja pekee aliyokuwa nayo ni blanketi lenye rangi nyingi alilopewa na mama yake. Baba yake Simbegwire hakugundua kwamba binti yake alikuwa hana furaha.
+Maisha ya Simbegwire yakabadilika. Hakuwa na muda tena wa kukaa na baba yake asubuhi. Anita alimpa kazi nyingi za nyumbani zilizomchosha sana kiasi cha kushindwa kufanya kazi zake za shuleni jioni. Alikuwa anaenda moja kwa moja kulala baada ya chakula cha jioni. Faraja pekee aliyokuwa nayo ni blanketi lenye rangi nyingi alilopewa na mama yake. Baba yake Simbegwire hakugundua kwamba binti yake alikuwa hana furaha.
 
 ##
 Baada ya miezi michache, baba yake Simbegwire aliwaambia kwamba ana mpango wa kusafiri. "Itanibidi nisafiri kikazi," alisema. "Lakini najua hakutakuwa na tatizo." Uso wa Simbegwire ulijawa huzuni, lakini baba yake hakugundua. Anita hakusema lolote. Hakuwa na furaha.

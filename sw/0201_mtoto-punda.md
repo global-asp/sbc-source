@@ -58,7 +58,7 @@ Hatimaye, Punda alijua alichotakiwa kufanya.
 Punda alimkuta mama yake akiwa peke yake huku akimwomboleza mwanaye aliyepotea. Wakaangaliana kwa muda mrefu. Na kisha wakakumbatiana kwa hisia.
 
 ##
-Mtoto Punda na mama yake wamekuwa kitu kimoja na kuishi kwa ushirikiano. Taratibu, familia nyingine zimeanza kuhamia na kushi miongoni mwao.
+Mtoto Punda na mama yake wamekuwa kitu kimoja na kuishi kwa ushirikiano. Taratibu, familia nyingine zimeanza kuhamia na kuishi miongoni mwao.
 
 ##
 * License: [CC-BY]

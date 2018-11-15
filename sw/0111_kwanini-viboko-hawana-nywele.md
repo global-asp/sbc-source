@@ -1,4 +1,4 @@
-# Kwanini Viboko Hawana Nywele
+# Kwa nini Viboko Hawana Nywele
 
 ##
 Siku moja, Sungura alikuwa akitembea pembeni ya mto.
@@ -13,7 +13,7 @@ Kiboko hakumwona Sungura na kwa bahati mbaya akaukanyaga mguu wa Sungura. Sungur
 Kiboko akamwomba Sungura msamaha, "Samahani, sikukuona, tafadhali nisamehe!" Lakini Sungura hakukubali na akaendelea kumbwatukia Kiboko, "Umefanya makusudi! Kuna siku utakiona, na nitakulipizia!"
 
 ##
-Sungura alienda kutafuta moto na akamwambia, "Nenda, ukamchome Kiboko akitoka majini kuja kula majani. Alinikanyaga!" Moto ukajibu, "Hakuna tatizo, rafiki yangu Sungura, nitafanya ulichoniomba kufanya."
+Sungura alienda kumtafuta moto na akamwambia, "Nenda, ukamchome Kiboko akitoka majini kuja kula majani. Alinikanyaga!" Moto ukajibu, "Hakuna tatizo, rafiki yangu Sungura, nitafanya ulichoniomba kufanya."
 
 ##
 Baadaye, Kiboko alikuwa akila majani mbali na mto, aliposhtuka moto umelipuka. Miale ya moto ikaanza kuzichoma nywele za Kiboko.

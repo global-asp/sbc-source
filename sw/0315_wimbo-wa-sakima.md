@@ -7,7 +7,7 @@ Sakima aliishi na wazazi wake na dada yake wa miaka minne. Waliishi katika shamb
 Sakima alipokuwa na umri wa miaka mitatu, aliugua na kupoteza uwezo wa kuona. Hata hivyo, Sakima alikuwa mvulana mwenye kipaji.
 
 ##
-Sakima alitenda mambo mengi ambayo wavulana wengine wa umri wake hawakufanya. Kwa mfano, angeketi na watu wazima na kujadili mambo muhimu.
+Sakima alitenda mambo mengi ambayo wavulana wengine wa umri wake hawakufanya. Kwa mfano, aliketi na watu wazima na kujadili mambo muhimu.
 
 ##
 Wazazi wa Sakima walifanya kazi katika nyumba ya yule tajiri. Walitoka nyumbani asubuhi na mapema na kurudi jioni. Sakima aliachwa na dada yake.

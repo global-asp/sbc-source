@@ -19,7 +19,7 @@ Punda milia saba wanakimbia kuelekea kwenye maji.
 Vyura wanane na samaki tisa wanaogelea kwenye maji.
 
 ##
-Simba mmoja anahuguruma. Naye anataka kunywa maji. Nani anamwogopa simba?
+Simba mmoja anaunguruma. Naye anataka kunywa maji. Nani anamwogopa simba?
 
 ##
 Tembo mmoja anakunywa maji na simba.

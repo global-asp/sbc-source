@@ -13,7 +13,7 @@ Anansi mlafi alinong'ona moyoni, "Nitakificha chungu hiki juu ya mti mrefu ili n
 Wakati huo wote, mwanawe alikuwa amesimama chini ya ule mti akimtazama baba yake. Akamwambia, "Baba, si ingekuwa rahisi kupanda endapo ungekifungia chungu mgongoni?" Basi Anansi akajaribu kukifungia chungu kilichojaa hekima mgongoni mwake, na kweli ikawa rahisi zaidi.
 
 ##
-Punde tu alifika juu ya mti, aliwaza, "Natakiwa kuwa ndiye mwenye hekima zote, lakini hapa mwanangu ndiye mwenye akili kuliko mimi." Anansi alikasirishwa sana kiasi kwamba alikitupa kile chungu chini ya mti.
+Punde tu alipofika juu ya mti, aliwaza, "Natakiwa kuwa ndiye mwenye hekima zote, lakini hapa mwanangu ndiye mwenye akili kuliko mimi." Anansi alikasirishwa sana kiasi kwamba alikitupa kile chungu chini ya mti.
 
 ##
 Chungu kilivunjika vipandevipande pale chini. Hekima zikawa za bure kwa mtu yeyote kujichukulia. Na hivyo ndivyo watu walivyojifunza kulima, kushona nguo, kuunda zana za chuma, na mambo yote mengine ambayo watu wanajua kuyafanya.

@@ -13,13 +13,13 @@ Mbuzi anasema, "Mee, mee."
 Farasi anasema, "Nei."
 
 ##
-Nguruwe anasema, "Ghuranti."
+Nguruwe anasema, "Ngruu."
 
 ##
 Kuku anasema, "Ko, ko, ko."
 
 ##
-Mbwa anasema, "Bwe, bwe."
+Mbwa anasema, "Wouh, wouh."
 
 ##
 Mkulima anasema,"Nyamaza!"

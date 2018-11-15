@@ -13,7 +13,7 @@ Tulifunga nyumba zetu mapema kwasababu ya wizi.
 Watoto wengi waliacha shule.
 
 ##
-Wasichana wadogo walifanya kazi kama watumishi kwenye vijiji vingine.
+Wasichana wadogo walifanya kazi za nyumbani kwenye vijiji vingine.
 
 ##
 Wavulana wadogo waliranda randa kijijini na wengine walifanya kazi kwenye mashamba ya watu.
@@ -25,10 +25,10 @@ Upepo ulipovuma, ulipeperusha karatasi chafu na kuzifikisha mitini na uani.
 Watu walikatwa na vipande vya chupa vilivyotupwa ovyo ovyo.
 
 ##
-Halafu siku moja, mfereji wa maji ulikauka na mitungi yetu ikawa  kawa tupu.
+Halafu siku moja, mfereji wa maji ulikauka na mitungi yetu ikawa mitupu.
 
 ##
-Baba yangu alitembea kutoka nyumba hadi nyumba akiwaomba watu kuhudhuria mkutano wa kijiji.
+Baba yangu alitembea nyumba hadi nyumba akiwaomba watu kuhudhuria mkutano wa kijiji.
 
 ##
 Watu walikusanyika chini ya mti mkubwa na kusikiliza.
@@ -40,7 +40,7 @@ Baba yangu alisimama na kusema, "Tunahitaji kusaidiana kutatua matatizo yetu."
 Juma, mtoto wa miaka minane aliyekuwa amekaa kwenye tawi la mti, alisema kwa sauti, "Naweza kusaidia na usafi."
 
 ##
-Mwanamke mmoja alisema, "Sisi wanawake tunaweza kuungana na kuotesha chakula."
+Mwanamke mmoja alisema, "Sisi wanawake tunaweza kuungana na kulima."
 
 ##
 Mwanamume mwingine alisimama na kusema, "Wanaume watachimba kisima cha maji."

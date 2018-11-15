@@ -28,7 +28,7 @@ Alitengeneza kitanda kirefu sana.
 Akanunua baisikeli iliyokuwa ndefu mno.
 
 ##
-Aliketi juu ya kiti kilichokuwa juu sana. Alikula kwa kutumia uma iliyokuwa refu mno.
+Aliketi juu ya kiti kilichokuwa juu sana. Alikula kwa kutumia uma iliyokuwa ndefu mno.
 
 ##
 Aliacha nyumba yake na kuishi katika msitu mkubwa. Aliishi kwa miaka mingi.

@@ -13,7 +13,7 @@ Ninasaga karoti.
 Ninaosha maharagwe.
 
 ##
-Ninakata mbegu za maboga.
+Ninakata maboga.
 
 ##
 Ninakatakata sukuma-wiki.

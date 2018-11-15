@@ -22,7 +22,7 @@ Mchezo ulikuwa mgumu. Hakuna timu yoyote iliyokuwa imefunga goli hadi muda wa ma
 Wakati wa kipindi cha pili kijana mmoja alimpatia Andiswa mpira. Akakimbia kwa kasi sana kuelekea golini. Akaupiga mpira kwa nguvu na akafunga goli.
 
 ##
-Umati ukashangilia kwa vifijo na furaha. Kuanzia siku hiyo, wasichana waliruhusiwa kucheza mpira wa miguu katika timu ya shule.
+Umati ukashangilia kwa vifijo na furaha. Kuanzia siku hiyo, wasichana waliruhusiwa kucheza mpira wa miguu kwenye timu ya shule.
 
 ##
 * License: [CC-BY-NC]

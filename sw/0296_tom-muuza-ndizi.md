@@ -19,7 +19,7 @@ Lakini hakuna anayenunua ndizi za Tom. Wanapenda kununua matunda kutoka kwa akin
 Lakini Tom hakati tamaa. Anaita, "Nunua ndizi zangu! Nunueni ndizi zangu tamu zilizoiva!"
 
 ##
-Mwanamke mmoja anachukua kichana cha ndizi kutoka kwenye tenga. Anaziangalia ndizi kwa umakini.
+Mwanamke mmoja anachukua kichane cha ndizi kutoka kwenye tenga. Anaziangalia ndizi kwa umakini.
 
 ##
 Mwanamke ananunua ndizi.

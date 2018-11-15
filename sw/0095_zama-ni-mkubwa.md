@@ -13,7 +13,7 @@ Mimi ndiye ninayeruhusu jua kuingia ndani.
 Naoga mwenyewe, sihitaji msaada.
 
 ##
-Naweza kustahimili maji ya baridi na sabuni ya bluu inayonuka.
+Naweza kustahimili maji ya baridi na sabuni ya bluu inayonukia.
 
 ##
 Mama ananikumbusha, "Usisahau kupiga mswaki." Namjibu, "Kamwe, sio mimi!"

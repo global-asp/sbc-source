@@ -22,7 +22,7 @@ Sauti ya bibi ilinishtua alipoita, "Unafanya nini? Fanya haraka niletee mkongojo
 Siku iliyofuata bibi alipokuja kumtembelea mama yangu, nikakimbilia nyumbani kwake kuangalia ndizi tena. Kulikuwa na vichana vya ndizi zilizoiva. Nikachukua ndizi moja na kuificha kwenye nguo yangu. Baada ya kufunika tenga tena, nikaenda nyuma ya nyumba na harakaharaka nikaila. Ilikuwa ni ndizi tamu ambayo sijawahi kula kamwe.
 
 ##
-Siku iliyofuata, bibi alipokuwa bustanini akichuma mboga, nikanyemelea ndani kuchungulia ndizi. Karibu zote zilikuwa zimeiva. Nikashindwa kujizuia nikachukua kichana cha ndizi nne. Nilipokuwa nanyata kuelekea mlangoni, nikamsikia bibi akikohoa nje. Nilifanikiwa kuzificha ndizi ndani ya nguo yangu na tukapishana bila ya kugundua.
+Siku iliyofuata, bibi alipokuwa bustanini akichuma mboga, nikanyemelea ndani kuchungulia ndizi. Karibu zote zilikuwa zimeiva. Nikashindwa kujizuia nikachukua kichane cha ndizi nne. Nilipokuwa nanyata kuelekea mlangoni, nikamsikia bibi akikohoa nje. Nilifanikiwa kuzificha ndizi ndani ya nguo yangu na tukapishana bila ya kugundua.
 
 ##
 Siku iliyofuata ilikuwa siku ya gulio. Bibi aliamka asubuhi sana. Huwa anapeleka ndizi mbivu na mihogo kuuza gulioni. Siku hiyo sikuwa na haraka kwenda kumsalimia. Ila sikuweza kumkwepa kwa muda mrefu.
