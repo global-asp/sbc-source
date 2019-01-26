@@ -1,19 +1,29 @@
 # Le crocodile qui avait très faim
 
 ##
-Il était une fois un crocodile qui avait très faim.
+Il était une fois un
+crocodile qui avait très
+faim.
 
 ##
-Il cherchait de quoi manger, doucement et sans faire de bruit. Et soudain ...
+Il cherchait de quoi
+manger, doucement et
+sans faire de bruit.
+
+Et soudain ...
 
 ##
-TCHAK !!! Le crocodile attaque !
+TCHAK !!!
+Le crocodile attaque !
 
 ##
-Après cela sa faim est calmée, et il est content.
+Après cela sa faim est
+calmée, et il est
+content.
 
 ##
-Jusqu'à ce qu'il ait faim de nouveau.
+Jusqu'à ce qu'il ait faim
+de nouveau.
 
 ##
 * License: [CC-BY]

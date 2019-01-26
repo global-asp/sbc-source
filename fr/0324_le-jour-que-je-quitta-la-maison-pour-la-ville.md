@@ -25,7 +25,7 @@ Le chargement était complet et tous les passagers étaient assis. Des colporteu
 Quelques passagers achetèrent des breuvages, d'autres achetèrent des petites collations et commencèrent à manger. Ceux qui n'avaient pas d'argent, comme moi, observaient seulement.
 
 ##
-Ces activités ont été interrompues par le klaxonnement de l'autobus, un signe que nous étions prêts à partir. Le revendeur de billets cria aux colporteurs de sortir.
+Ces activités ont été interrompues par le klaxonne-ment de l'autobus, un signe que nous étions prêts à partir. Le revendeur de billets cria aux colporteurs de sortir.
 
 ##
 Les colporteurs se poussaient pour sortir de l'autobus. Quelques-uns ont redonné de la monnaie au voyageurs. D'autres ont fait des tentatives de dernière minute pour vendre d'autres articles.
