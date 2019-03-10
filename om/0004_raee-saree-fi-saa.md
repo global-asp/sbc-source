@@ -27,6 +27,6 @@ Sanii garuu yeroo konkoolatan dhufu hincinqamtu, sababin isas kafalte isshe offi
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Demoze Degefa
 * Language: om

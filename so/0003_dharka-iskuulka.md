@@ -27,6 +27,6 @@ Laakiin kabahani waa kuwo cusub.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Abdi Muse
 * Language: so

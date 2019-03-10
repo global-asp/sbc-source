@@ -27,6 +27,6 @@ Vitunguu hunifanya nilie vikiwa vinakatwakatwa.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Matteo E. Mwita
 * Language: sw

@@ -27,6 +27,6 @@ Mais je ne peux jamais voler avec.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini
+* Illustration: Mlungisi Dlamini, Ingrid Schechter
 * Translation: Alexandra Danahy
 * Language: fr

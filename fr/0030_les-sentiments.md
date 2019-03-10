@@ -18,6 +18,6 @@ Je me sens aimée quand ma mère me donne un câlin.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Alexandra Danahy
 * Language: fr

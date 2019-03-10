@@ -18,6 +18,6 @@ Yeroo harmeen ko nahammattu jaallatamu koottu nati dhagaham
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Demoze Degefa
 * Language: om

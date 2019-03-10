@@ -27,6 +27,6 @@ Les oignons me font pleurer quand ils sont hachés.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Alexandra Danahy
 * Language: fr

@@ -27,6 +27,6 @@ Et Vache n'est pas gênée quand une voiture arrive. Vache prend son temps pour 
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Alexandra Danahy
 * Language: fr

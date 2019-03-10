@@ -18,6 +18,6 @@ Waxaan dareemaa in la i jecelyahay marka ay hooyadeey isiiso hab.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Kathy Arbuckle
+* Illustration: Kathy Arbuckle, Ingrid Schechter
 * Translation: Abdi Muse
 * Language: so

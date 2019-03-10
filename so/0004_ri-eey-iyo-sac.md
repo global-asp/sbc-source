@@ -27,6 +27,6 @@ Saca na dan kamalahan markuu baabuur soo socdo. Saca waxuu qaataa waqtigiisa si 
 ##
 * License: [CC-BY]
 * Text: Fabian Wakholi
-* Illustration: Marleen Visser
+* Illustration: Marleen Visser, Ingrid Schechter
 * Translation: Abdi Muse
 * Language: so
