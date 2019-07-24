@@ -7,7 +7,7 @@ Kituo kidogo cha mabasi kijijini mwetu kilijaa shughuli za watu na mabasi. mabas
 "Mjini! Mjini! Magharibi!" Nilisikia kondakta akiita kwa sauti. Lile ndilo basi nililohitaji kupanda.
 
 ##
-Basi la kwenda mjini lilikaribia kujaa, lakini watu wengine walikuwa wanasukumana kupanda kupanda. Baadhi yao walipakia mizigo chini ya basi. Wengine waliiweka katika sehemu ya juu.
+Basi la kwenda mjini lilikaribia kujaa, lakini watu wengine walikuwa wanasukumana kupanda. Baadhi yao walipakia mizigo chini ya basi. Wengine waliiweka katika sehemu ya juu.
 
 ##
 Abiria wapya walishika tiketi zao huku wakitafuta mahali pa kukaa. Wanawake waliokuwa na watoto wodogo waliwatayarisha kwa safari hiyo ndefu.

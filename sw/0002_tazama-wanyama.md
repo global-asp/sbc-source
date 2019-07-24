@@ -22,7 +22,7 @@ Kuku anasema, "Ko, ko, ko."
 Mbwa anasema, "Wouh, wouh."
 
 ##
-Mkulima anasema,"Nyamaza!"
+Mkulima anasema, "Nyamaza!"
 
 ##
 * License: [CC-BY-NC]

@@ -4,7 +4,7 @@
 Katika kijiji kimoja kwenye mteremko wa Mlima wa Kenya, katika Afrika Mashariki, msichana mdogo alifanya kazi za shambani pamoja na mama yake. Msichana huyu aliitwa Wangari.
 
 ##
-Wangari alipenda kufanya kazi za nje. Alitumia jembe kulima katika bustani ya familia yake. Kisha alipanda mbegu ndogo katika ardhi yenye virutubisho.
+Wangari alipenda kufanya kazi za nje. Alitumia jembe kulima katika bustani ya familia yake. Kisha alipanda mbegu ndogo katika ardhi yenye rutuba.
 
 ##
 Alipenda majira ya jioni, wakati jua linapozama. Giza lilipozidi mpaka aliposhindwa kuona mimea, Wangari alifahamu kuwa wakati wa kwenda nyumbani uliwadia. Alikuwa anafuata kinjia chembamba kilichopita uwanjani huku akivuka mito akielekea nyumbani.
@@ -16,7 +16,7 @@ Wangari alikuwa mtoto mwerevu na alikuwa na hamu ya kwenda shule. Lakini wazazi 
 Alipenda kusoma! Wangari alijifunza zaidi na zaidi kwa kila kitabu alichokisoma. Alifanya vyema sana shuleni hadi akaalikwa kwenda Marekani kuendeleza masomo yake huko. Wangari alitiwa hamasa sana na nafasi hii! Alipenda kujua ulimwengu zaidi.
 
 ##
-Alipokuwa chuoni huko Marekani, Wangari alijifunza mengi mapya. Alisomea mimea na jinsi inavyokua. Na alikumbuka maisha yake yalivyokuwa utotoni: kucheza michezo na msitu zake katika kivuli cha miti kwenye misitu maridadi ya.
+Alipokuwa chuoni huko Marekani, Wangari alijifunza mengi mapya. Alisomea mimea na jinsi inavyokua. Na alikumbuka maisha yake yalivyokuwa utotoni: kucheza michezo na msitu zake katika kivuli cha miti kwenye misitu maridadi ya Kenya.
 
 ##
 Jinsi alivyojifunza ndivyo alivyofahamu kuwa aliwapenda watu wa Kenya. Alitaka wafurahi na wawe wenye uhuru. Jinsi alivyojifunza ndivyo alivyokumbuka nyumbani kwao Afrika.
@@ -31,7 +31,7 @@ Wangari alijua la kufanya. Aliwafundisha wanawake jinsi ya kupanda miti kutokana
 Muda ulipopita, miti mipya ilikuwa misitu, na mito ilianza tena kupitisha maji. Ujumbe wa Wangari ulienea Afrika nzima. Leo, mamilioni ya miti imemea kutokana na mbegu za Wangari.
 
 ##
-Wangari alikuwa amefanya bidii. Watu ulimwengu mzima walifahamu hili na wakampa tuzo. Tuzo hii inaitwa, 'Tuzo ya Amani ya Nobel.' Na alikuwa mwanamke wa Kiafrika wa kwanza kupokea tuzo hilo.
+Wangari alikuwa amefanya bidii. Watu ulimwengu mzima walifahamu hili na wakampa tuzo. Tuzo hii inaitwa, 'Tuzo ya Amani ya Nobel.' Na alikuwa mwanamke wa Kiafrika wa kwanza kupokea tuzo hii.
 
 ##
 Wangari alifariki mwaka 2011, lakini tunaweza kumkumbuka kila tunapoona mti maridadi.

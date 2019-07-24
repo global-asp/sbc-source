@@ -34,7 +34,7 @@ Kuchanganyikiwa na hasira vilianza kujengeka ndani mwa Punda. Alishindwa kufanya
 Punda alijawa na aibu. Akaanza kukimbilia mbali kwa haraka kadiri awezavyo.
 
 ##
-Wakati aliposimama, ilikuwa ni usiku, na alikuwa amepotea. "Hee haw?" alinong'ona gizani. "Hee haw?" giza likatoa mwangwi. Alikuwa mwenyewe. Alijikunyata katika umbo dogo, akalala fofofo usingizi wa mang'amung'amu.
+Wakati aliposimama, ilikuwa ni usiku, na alikuwa amepotea. "Hii hoo?" alinong'ona gizani. "Hii hoo?" giza likatoa mwangwi. Alikuwa mwenyewe. Alijikunyata katika umbo dogo, akalala fofofo usingizi wa mang'amung'amu.
 
 ##
 Punda aliamka na kumkuta mzee mmoja wa ajabu akimtazama. Akamwangalia mzee yule machoni na akaanza kuhisi ishara ya matumaini.

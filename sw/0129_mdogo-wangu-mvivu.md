@@ -19,9 +19,9 @@ Ninafagia sakafu.
 Ninaosha vyombo.
 
 ##
-Kwa nini ninafanya kazi kwa bidii …
+Kwa nini ninafanya kazi kwa bidii...
 
-… wakati mdogo wangu anacheza?
+...wakati mdogo wangu anacheza?
 
 ##
 * License: [CC-BY-NC]

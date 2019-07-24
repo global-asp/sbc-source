@@ -10,7 +10,7 @@ Sweta hii ni kubwa.
 Mkoba huu ni mkubwa.
 
 ##
-Mkanda huu ni …
+Mkanda huu ni...
 
 ##
 Kofia hii ni ndogo.
@@ -22,7 +22,7 @@ Soksi hizi ni fupi.
 Lakini viatu hivi ni vipya.
 
 ##
-… vinanitosha vizuri.
+...vinanitosha vizuri.
 
 ##
 * License: [CC-BY-NC]

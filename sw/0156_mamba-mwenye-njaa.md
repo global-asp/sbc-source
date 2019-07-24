@@ -4,7 +4,7 @@
 Hapo zamani, palikuwa na mamba mwenye njaa.
 
 ##
-Alitafuta chakula taratibu na kwa ukimya. Halafu …
+Alitafuta chakula taratibu na kwa ukimya. Halafu...
 
 ##
 POO!!! Mamba anashambulia!
