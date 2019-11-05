@@ -4,7 +4,7 @@
 Je pèle les pommes de terre.
 
 ##
-Je hache un chou.
+J'émince un chou.
 
 ##
 Je râpe les carottes.

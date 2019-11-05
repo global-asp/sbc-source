@@ -16,13 +16,13 @@ Zama a tressé ses cheveux.
 Baba a une barbe.
 
 ##
-Zanele a peigné ses cheveux.
+Zanele s'est peignée.
 
 ##
-Thabo a coupé ses cheveux.
+Thabo s'est coupé les cheveux.
 
 ##
-Themba a rasé ses cheveux.
+Themba s'est rasé les cheveux.
 
 ##
 * License: [CC-BY-NC]

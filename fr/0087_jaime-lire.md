@@ -22,8 +22,7 @@ Ma mère et ma grand mère sont occupées.
 Mon père et mon grand père sont occupés.
 
 ##
-À qui puis-je faire la lecture ?
-Je peux faire la lecture... à moi même !
+À qui puis-je faire la lecture ? Je peux me faire la lecture même !
 
 ##
 * License: [CC-BY]

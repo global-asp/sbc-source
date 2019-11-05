@@ -16,10 +16,10 @@ Ils devaient faire tout leur travail pendant la nuit. Puisqu'ils étaient faits 
 Mais un des garçons désirait se promener au soleil.
 
 ##
-Un jour son désire était trop puissant. Ses frères l'avertirent...
+Un jour son désir était trop puissant. Ses frères l'avertirent...
 
 ##
-Mais c'était trop tard ! Il fonda au soleil brûlant.
+Mais c'était trop tard ! Il fondit au soleil brûlant.
 
 ##
 Les enfants de cire étaient si tristes de voir leur frère fondre.

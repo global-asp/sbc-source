@@ -13,13 +13,13 @@ Je peux danser avec.
 Je peux nager avec.
 
 ##
-Je peux jouer à la corde à danser avec.
+Je peux sauter à la corde sauter avec.
 
 ##
 Je peux donner un coup de pied avec.
 
 ##
-Je peux échapper avec.
+Je peux m'échapper avec.
 
 ##
 Mais je ne peux jamais voler avec.
