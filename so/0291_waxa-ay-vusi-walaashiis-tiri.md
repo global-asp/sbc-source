@@ -7,7 +7,7 @@ Subax amin aroortii hore ah, ayaa Vusi ayaydiis u yeedhay, "Vusi, fadlan u qaad 
 Jidka marku waalidkiis u sii socday, Vusi wuxuu la kulmay laba wiil oo midho guranaayo. Mid ka mid ah ayaa ukun ka dafay Vusi wuxuuna ku toogtay geed. Ukunti ayaa jabtay.
 
 ##
-"Maxaad samaysay?"Vusi ayaa ku ooyay. "Taas waxay ahayd ukuntii keegga, Keeggii walaashay arooskeda. Maxaay walaashey dhihi doontaa haddii arooskeda uu san keeg jirin?"
+"Maxaad samaysay?" Vusi ayaa ku ooyay. "Taas waxay ahayd ukuntii keegga, Keeggii walaashay arooskeda. Maxaay walaashey dhihi doontaa haddii arooskeda uu san keeg jirin?"
 
 ##
 Wiilashii way ka xumaadeen inay ku ciyaareen Vusi. "Kama caawin karno keegga, laakiin halkan waa usha socodka ee walaashaa," ayuu yiri mid. Vusi wuxuu sii watay socodkiisi.

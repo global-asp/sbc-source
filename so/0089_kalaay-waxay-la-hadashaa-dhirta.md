@@ -19,7 +19,7 @@ Iskuulka, Kalaay waxay la hadashaa geedka dhexda xerada ku yaallo. "Fadlan geed,
 Kalaay waxay la hadashaa bowdka ku wareegsan dugsigeeda. "Fadlan u kora si awoodleh oo joojiya soogallida dadka xun."
 
 ##
-Markay Kalaay guriga ku laabato, waxay booqataa geedka liinta." Miyay bislaadeen midhahaada wali? Ayey weydisaa khalaay.
+Markay Kalaay guriga ku laabato, waxay booqataa geedka liinta." Miyay bislaadeen midhahaada wali?" Ayey weydisaa Khalaay.
 
 ##
 "Liinta weli waa cagaar," ayay ku neef tuurtay Kalaay "Waxaan ku arki doonaa berrito geedka liintaw," ayay tidhi Khalaay. "Malaha markaas baad ii yeelan doonto midho liin ah oo bislaaday!"

@@ -7,7 +7,7 @@ Bocca dinqisiisa kana kanagarte muccaayyo xinno tokko turte.
 Akka boccni suni itti dhihateen, dubartii ulfa gudda qabdu ta'uu ishee barame.
 
 ##
-Salffattu garu muccatin goota tate tuni gara dubartitti hiqixee akkan jetteen, "Dubarti tana walwajjiin turuu qabna," namooni ishes kana murtesan." Dubarti kanafi da'imaa ishees hala gariin tursisina."
+Salffattu garu muccatin goota tate tuni gara dubartitti hiqixee akkan jetteen, "Dubarti tana walwajjiin turuu qabna," namooni ishes kana murtesan. "Dubarti kanafi da'imaa ishees hala gariin tursisina."
 
 ##
 Yerooma sani dam'immichi dhufe. "Dhibi!" "Uffta halkani fidaa!" "Bishan!" "Dhhhiiiiiiiiibaa!!!"

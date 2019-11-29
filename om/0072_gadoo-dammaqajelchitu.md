@@ -26,7 +26,7 @@ Hata'u maale Gingileen ibdda dhamsee, eboo isaa qabatee Sibirricha dhisee gara m
 Turbaan bayee booda, gaftokko Gingileen sagaale damma himaa Nagadee dhagahe. Damma walalaa sana yadatee Nagade dukaa bu'ee. Eega Gingilee karaa ittiagarsisuu calqabee booda boqachudhaf mukaa tokko jala ta'ee. "Ahha, holqii kannisaa asi jiraachu qaba" jdhee yadee. Hatataman mukaa aara isaa qabsifatee mukkicha koruu calqabe. Nagaden ta'ee ilaala ture.
 
 ##
-Gingileen mukkicha yeroo koruu garu sagaale kannisa dhagahu dhisuun isaa isa dinqisiisa ture." Holqichii gaddii fagachuu qaba jedhe yadee." Damee biraa irra koree. Garuu holqaa kannisaa otu hinta'in fula qeransaa arge. Qeransichis hiribaa isaa irra waan dammaqeef bayee aare. Ija fi afaan ishee banudhaan ilkaan ishee hamam akka cimaa ta'e agarsiste.
+Gingileen mukkicha yeroo koruu garu sagaale kannisa dhagahu dhisuun isaa isa dinqisiisa ture. "Holqichii gaddii fagachuu qaba jedhe yadee." Damee biraa irra koree. Garuu holqaa kannisaa otu hinta'in fula qeransaa arge. Qeransichis hiribaa isaa irra waan dammaqeef bayee aare. Ija fi afaan ishee banudhaan ilkaan ishee hamam akka cimaa ta'e agarsiste.
 
 ##
 Otoo qeransichi itti hin utaalin, Gingileen dafee mukarra bu'ee. Otoo muddamu damee tokko qolee lafati akka maleeti kufee caphee. Akka carraa ta'e qeransci hirribarra hinkanee wantureef. isa dukaa hinbunee. Nagaden, dammaqajelchitun, gaddod Gingileeti batee. Gingileenis barnoota bayee argate.

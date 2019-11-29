@@ -22,7 +22,7 @@ Lukkuun gara malee aarte afaan ishee bantee dhimillee liqimsitee.
 Yeroo gara mana ishe deemitu, lukkuun harmee dhimillee kara irrati qunamtee. Hatii dhimilleenn akkan jettee gaafate, "Mucaa kiyaa agartee?" Lukkuun homaa hinjenne. Harmeen dhimillee bayee yaddee.
 
 ##
-Kana booda harmeen dhimillee sagaale akkan jedhu dhagechee," Harmee koo nadhaqbii," Harmeen isshes nannoo sana haalan ilaalte. Sagaaleen suni garaa lukkuu kessaa dhufaa ture.
+Kana booda harmeen dhimillee sagaale akkan jedhu dhagechee, "Harmee koo nadhaqbii," Harmeen isshes nannoo sana haalan ilaalte. Sagaaleen suni garaa lukkuu kessaa dhufaa ture.
 
 ##
 Harmeen dhimillee akkan jette iyyite, "Humna kee addati fayyadam mucaa koo!" Dhimilleen hafuraa gadhee fir dhamdham badaa umuu nidnada'u. Lukkuun dhukibsachu calqabde.

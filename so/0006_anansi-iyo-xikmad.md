@@ -13,7 +13,7 @@ Damaaci Anansi waxuu ku fikiray "waa in aan ku xafidaa dhariga dusha geed dheer.
 Intaa oo dhan Anansi wiilkiisi yaraa ayaa taagnaa geedka hoostiisa oo daawanayay. Waxuu yiri, "Miyaysan sahlanaan laheyn in aad fuusho hadii aad dhariga dhabarka ku xirato?" Anansi waxa uu isku dayay ku xirashada dharigii dhoobada ahaa oo ay xikmadu ka buuxday dhabarkiisa, waxayna dhab ahaanti aheyd mid in badan fudud.
 
 ##
-Waqti yar ba waxuu gaaray geedka dushiisa. Laakiin markiiba wuu istaagay waxa uu na ka fikiray, "Aniga uun bay ahayd midka heysto xikmad oo dhan, hadana meeshan wiilkayga ayaa iga xariifsan aniga! Anansi aad buu u carooday dharigii dhoobada ayuu geedka kasoo tuuray.
+Waqti yar ba waxuu gaaray geedka dushiisa. Laakiin markiiba wuu istaagay waxa uu na ka fikiray, "Aniga uun bay ahayd midka heysto xikmad oo dhan, hadana meeshan wiilkayga ayaa iga xariifsan aniga!" Anansi aad buu u carooday dharigii dhoobada ayuu geedka kasoo tuuray.
 
 ##
 Dhulka ayuuna jajab ugu burburay. Xikmaddii way xorowday si qof waliba qayb uga helo. Waana sababta ay hadda dadku u barteen sid loo beerto, sida dhar loo tosho, qalab looga sameysto birta, iyo wax walba oo kale oo dadku ay hada yaqaanaan sida loo sameeyo.

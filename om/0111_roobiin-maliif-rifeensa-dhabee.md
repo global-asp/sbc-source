@@ -10,7 +10,7 @@ Roobiins achuma ture, margaa marariisaa bareda nyaachu dhaqee.
 Roobiin akka heleetiin achi jirtu hinbekinee tasa mila ishee irra ejetee. Heleetin boyuu claqabdee, "Ati Roobii akka miila kiyyarra dhaabate hinagartu?"
 
 ##
-Roobiin dhifaatam hileeti gafatee, "Ani bayeen gadde. Sin'agarre ture. Adaara nafdhisii!" Hileettin kana otto hindhagahin Roobiiti akkan jette eyyite." Beekka akkan gotee! Gaftokko gatii isaa nikafalta!"
+Roobiin dhifaatam hileeti gafatee, "Ani bayeen gadde. Sin'agarre ture. Adaara nafdhisii!" Hileettin kana otto hindhagahin Roobiiti akkan jette eyyite. "Beekka akkan gotee! Gaftokko gatii isaa nikafalta!"
 
 ##
 Hileetiin ibddaa barbaacha dhaqxee akkan jette ibbidaan, "Deemi, yeroo Roobiin bishaan kessaa baate margaa dheedu deemitu gubbi. Milaa koo gubba dhaabate!" Ibbdis akkan jedhe, "Rakkoon hinjiru, Hileeti hiriyaa koo. Akkuma ati jetteh godha."
