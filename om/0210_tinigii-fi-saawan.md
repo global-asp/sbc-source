@@ -1,4 +1,4 @@
-# Tinigii fi Saawan
+# Tinigii fi saawan
 
 ##
 Tinigiin Akko isaa wajjiin jirta.

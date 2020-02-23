@@ -1,4 +1,4 @@
-# Anaanis fi Ogummaa
+# Anaanis fi ogummaa
 
 ##
 Yeroo durii namoonni homaa hinbekan ture. Namoonni kuni akkaitti wayya dhahan, akkaa midhaan facaasan, fi akkaiti sibilaa tuman hinbekaan ture. Ayyanni Nyamee jedhamu garuu ogummaa bayee qaba ture. Ogummaa kana okkotee keesaa ka'ee.

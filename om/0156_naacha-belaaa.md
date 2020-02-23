@@ -1,4 +1,4 @@
-# Naacha Bela'aa
+# Naacha bela'aa
 
 ##
 Yeroo tokko naacha bela'aa tokkotu ture.

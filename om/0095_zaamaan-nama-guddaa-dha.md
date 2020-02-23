@@ -22,7 +22,7 @@ Harmeen, "ilkaan kee hindagatin nanjetti" Anis immo, "Lakki, gonkumayyu!"
 Saana boodaa akakkayuu fi aadaada koon naga gaafadha.
 
 ##
-Sanaa booda uffata kook nanufadha. "Ani amma goddadheera harmee" jedhan.
+Sanaa booda uffata kook nanufadha." Ani amma goddadheera harmee" jedhan.
 
 ##
 Kophee hidhaachufi qulfii qulfachuu nandanda'aa.

@@ -1,4 +1,4 @@
-# Beladoota Laka'u
+# Beladoota laka'u
 
 ##
 Arbi tokko bishan dhuguu deema.

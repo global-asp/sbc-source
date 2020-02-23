@@ -1,13 +1,13 @@
 # Muzaa Akko
 
 ##
-Oddoon akko dansaa dha. Mashiilaa, kaazzava fi boqqollo ofirra qaba. keesaa bayee dansaa kanture muzaa. Akkoo akakile bayee qaabatulle ana akka sirritti najalatu nanbeeka. Ana yeroo bayee gara mana isheeti naaferiti. Icciti xinnos natti himitee jirti. Iciittin tokko garu nijira kan isheen natti hinhimini. innis; "Muzaa akka issa argatudha."
+Oddoon akko dansaa dha. Mashiilaa, kaazzava fi boqqollo ofirra qaba. keesaa bayee dansaa kanture muzaa. Akkoo akakile bayee qaabatulle ana akka sirritti najalatu nanbeeka. Ana yeroo bayee gara mana isheeti naaferiti. Icciti xinnos natti himitee jirti. Iciittin tokko garu nijira kan isheen natti hinhimini. innis;" Muzaa akka issa argatudha."
 
 ##
 Gaftokko kircaata gudda tokko mana akko kiyya duratin arge. Yeroon fayidaa isaa gafadhu, deebiin isheedha; "Kircaata falfalati," nanajette. Kircaata sanati anna balaa muzaa bayee tu ture. Waansa baruun barbadee, "Akko balli kun malsigodhaa?" jedheen gafadhe. Deebin ani argadhe: "Isaan kun balaa falfalati."
 
 ##
-Akko, muzaa, bala muzaa, fi Kircaata magraa ilaalu bayee gemechisaadha. Garu akkon wabalesse jennan gara harmee koti na'ergite. "Akko me yeroo ati qophesitu ya ilaalu...." "Dubbi namani sinjedhu dhagahi akkan ani sinjedhe godhi" Jete didde akkon. Anis figeen demee.
+Akko, muzaa, bala muzaa, fi Kircaata magraa ilaalu bayee gemechisaadha. Garu akkon wabalesse jennan gara harmee koti na'ergite." Akko me yeroo ati qophesitu ya ilaalu...." "Dubbi namani sinjedhu dhagahi akkan ani sinjedhe godhi" Jete didde akkon. Anis figeen demee.
 
 ##
 Yeroon debi'uu akkon ala qofaa ishee techi. "Akko kircaani esssa, muzuni ho?" Deebin ishee garu, "Hundi isani lafa falfala kiyya jiran." Bayee nama aarsa.

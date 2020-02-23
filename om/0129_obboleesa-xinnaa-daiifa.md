@@ -1,4 +1,4 @@
-# Obboleesa Xinnaa Da'iifa
+# Obboleesa xinnaa da'iifa
 
 ##
 Ani halkan ka'een ibbidda qabsisaa.

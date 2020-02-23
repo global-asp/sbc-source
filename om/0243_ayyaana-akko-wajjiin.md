@@ -1,4 +1,4 @@
-# Ayyaana Akko Wajjiin
+# Ayyaana akko wajjiin
 
 ##
 Odongo fi Apiyoon abba isaani wajjiin magaala kessa jiraatu. Ayyaana dhufa jiruu hawwidhan eeggachaa turan. Manni barumsaa waan cufamef oto hinta'in akkoo isaani bira waandemanif. Akkoon isaanis lafa qurxxumin itti argamu haroo tokko bira jiratan.

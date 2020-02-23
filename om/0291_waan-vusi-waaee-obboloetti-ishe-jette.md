@@ -1,7 +1,7 @@
 # Waan Vusi waa'ee obboloetti ishe jette
 
 ##
-Guyyaa tokko akkon Vusi waamtee akkan jetene, "Killee kana gara warra keetii gessi. Cidha obboletti keetiif kan ta'ee keekii ittin tolchani."
+Guyyaa tokko akkon Vusi waamtee akkan jetene," Killee kana gara warra keetii gessi. Cidha obboletti keetiif kan ta'ee keekii ittin tolchani."
 
 ##
 Gara mana warra isaa yeroo deemuu, Vusiin namoota fuduraa guran qunnamee. Muccan tokko killee Vusi fudhate mukkati darbe cabsee.
@@ -37,7 +37,7 @@ Sa'atiin garuu gara yeroodhuma san gara abba issheti deebite. Vusini gara wallaa
 "Malan godha?" jedhe Vusin. "Sani suni kenna bakka qaca turte nifigide deemte. Warrai mana ijaaru suni qaca nakennan, sababaa sinqee warra fudura sani cabsaniif. Warri fuduraa guru sinqee nankennan sababini isaas kille narra cabsan. keekiin suni cidhaaf ture. Amma garu, killen hinjiruu, keekiin hinjiriuu, kennanis hinjoruu."
 
 ##
-Obboleetin Vusi yaadde akan jette, "Vusin obbolessa kiya, ani waa'ee kennaa bayee hindhphadhu. waa'ee keekiis akkanuma. Hundi kenyaa as jirraa ani bayee gammadeera. Uffataa kee bareeda uffadhuti guyyaa kana hakanjnu." Vusinis akkasuma godhe.
+Obboleetin Vusi yaadde akan jette, Vusin obbolessa kiya, ani waa'ee kennaa bayee hindhphadhu. waa'ee keekiis akkanuma. Hundi kenyaa as jirraa ani bayee gammadeera. Uffataa kee bareeda uffadhuti guyyaa kana hakanjnu." Vusinis akkasuma godhe.
 
 ##
 * License: [CC-BY]

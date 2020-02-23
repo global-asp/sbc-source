@@ -19,7 +19,7 @@ Guyyaa tokko Magozee yeroo qawwaa balfa kessa yeroo ilaalu kitaaba senaa dulooma
 Suuraawan sun wa'ee mucaa paylata ta'uf fedhii qabu akkamit akka guddate agarsiisa. Magazeenis paylata ta'uf yaddan balali'ee. Yeroo tokko tokko akkan mucaa seenaa sanati of ilaala,
 
 ##
-Guyyaan bayee qorraa dha yeroo Magazeeen kara gubba dhabate kadhatu. Namni tokko itti kiiqee akan jedheen, "Ashamaa, ani Tomaas jedham. Ani lafa ati waan nyaatu argatutaan hojadha." Namni kunis karkaan gara mana kelloo kan gubbaan isaa dokiyyee ta'ee it agarsisee. "Bakka mana sana dhaqtee akka nyaata argatu abdiin qaba?" jedhe gafatee. Magazzenis yeroo tokko gara manichaa yeroo biraa immo gara namichaa ilaale. "Akka tasa," jedhe gara mannicha deeme.
+Guyyaan bayee qorraa dha yeroo Magazeeen kara gubba dhabate kadhatu. Namni tokko itti kiiqee akan jedheen," Ashamaa, ani Tomaas jedham. Ani lafa ati waan nyaatu argatutaan hojadha." Namni kunis karkaan gara mana kelloo kan gubbaan isaa dokiyyee ta'ee it agarsisee." Bakka mana sana dhaqtee akka nyaata argatu abdiin qaba?" jedhe gafatee. Magazzenis yeroo tokko gara manichaa yeroo biraa immo gara namichaa ilaale. "Akka tasa," jedhe gara mannicha deeme.
 
 ##
 Ji'oota ittiaanan kessatti manadhabeyyni kun Tomaasni walarguu cimsanii qaban. Innis immo namoota wajjiin kessaahu namoota karaa gubbaa jirataniin hasa'u jallata. Senaa namoota dhaggefachu jallata. Tomaas nama amala garii qabuufi nama namaa tufatu mit. Ijoolen tokko tokko gara guyyaa walakaa irrati gara mana kelloo fi doqiyoo sana deemudhan waan nyataan argatan.

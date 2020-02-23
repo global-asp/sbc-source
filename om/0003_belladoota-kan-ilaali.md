@@ -1,4 +1,4 @@
-# Offata mana Barmusaa.
+# Offata mana barmusaa
 
 ##
 Wandaboon kuni dheeraa dha.

@@ -34,7 +34,7 @@ Guyyaa hundaa sareef nyaatafi mana qopheesu qabdi. Gaftokko sareen akkan jette, 
 Akkuam sareenn gara imala deemiteen, Noziibelen rifeensa sadi ofira luqistee. Rifeensa tokko siree jala, tokko immo balbala duuba, fi isaa kan immo kiraala kessa goote. Eegasi gara mana ishee dadftee figde.
 
 ##
-Sareen yeroo deebi'u, Noziibele barbaade. "Noziibele, isaa jirtaa?" jedhe. "Ani asna jira siree jala," jedge rifeesi duraa. "Ani asna jira, balbalaa duuba," jedhe rifeense lammata. "Ani kiraala keessan jira," jedhe rifeense saddafan.
+Sareen yeroo deebi'u, Noziibele barbaade. "Noziibele, isaa jirtaa?" jedhe. "Ani asna jira siree jala," jedge rifeesi duraa." Ani asna jira, balbalaa duuba," jedhe rifeense lammata." Ani kiraala keessan jira," jedhe rifeense saddafan.
 
 ##
 Sanaa booda Noziibelen akka isaa goyyomsite bare. Dafee garaa ganda isheeti figee. Garuu obbolegni Noziibele olee gurguddaa qabatanii eegachaa jiru. Sareenis gara mana isaa figee debi'ee lammata gandaa sanatti hinmuldhanne.

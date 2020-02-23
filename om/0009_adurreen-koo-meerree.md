@@ -1,4 +1,4 @@
-# Adurreen Koo meerree?
+# Adurreen koo meerree?
 
 ##
 Adurreen koo meerree?
@@ -19,8 +19,7 @@ Guuboo keessa jirtii?
 Uffata jala jirtii?
 
 ##
-Moo manaa baatee
-jirtii?
+Moo manaa baatee jirtii?
 
 ##
 Kunootii!
@@ -28,6 +27,6 @@ Kunootii!
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Bronwen Heath, Ingrid Schechter
+* Illustration: Bronwen Heath
 * Translation: Siyane Aniley
 * Language: om

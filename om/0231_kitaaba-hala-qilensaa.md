@@ -1,4 +1,4 @@
-# Kitaaba Hala qilensaa
+# Kitaaba hala qilensaa
 
 ##
 Qilensii gogadha.

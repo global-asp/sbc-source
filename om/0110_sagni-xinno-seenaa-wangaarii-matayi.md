@@ -1,4 +1,4 @@
-# Sagni Xinno: Seenaa Wangaarii Matayi
+# Sagni xinno: Seenaa Wangaarii Matayi
 
 ##
 Gaarren Baha Africa kessa kan jiruti intalti xinno tokko harmaee ishee wajjiin hojii qonnaa hojati. Maqan ishee Waangaarii dha.

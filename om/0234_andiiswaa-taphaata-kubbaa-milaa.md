@@ -1,4 +1,4 @@
-# Andiiswaa: Taphaata Kubbaa milaa
+# Andiiswaa: taphaata kubbaa milaa
 
 ##
 Andiiswaan yeroo ijooleen kubbaa miilaa taphatan argite. Otoo isaan wajjiin taphate hawwitee turte. Kanafuu isaan wajjiin shakaluf leenjisaa hayamaa gaafate.

@@ -1,19 +1,19 @@
-# Miiraa Kenya
+# Miiraa kenya
 
 ##
-Lubbuun too waan bayee yaddi
+Lubbuun too waan bayee yaddi.
 
 ##
-Akkoyyye tiya yeroo isshen seenaa durii nati himtu bayeen gamaada
+Akkoyyye tiya yeroo isshen seenaa durii nati himtu bayeen gamaada.
 
 ##
-Yeroon hiriyyotaa kiya wajiin taphadhu ijolummatu nattidhgahama
+Yeroon hiriyyotaa kiya wajiin taphadhu ijolummatu nattidhgahama.
 
 ##
-Yeroo Abbon koo maalaqqa ofharkaa hinqabu naan jedhu bayyeen gadda
+Yeroo Abbon koo maalaqqa ofharkaa hinqabu naan jedhu bayyeen gadda.
 
 ##
-Yeroo harmeen ko nahammattu jaallatamu koottu nati dhagaham
+Yeroo harmeen ko nahammattu jaallatamu koottu nati dhagaham.
 
 ##
 * License: [CC-BY-NC]

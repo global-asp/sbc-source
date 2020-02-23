@@ -25,7 +25,7 @@ Ganama tokko Simbagwayir hirribarra dafte hinka'iin turte. Aniitaanis, "Mucaayo 
 Simbagwayirn bayee aarte. Mana sana gadidhiiftee demuuf murteesite. Ufata halkani harmee isheetif nyaataa qabattee mana batee. Kara abban ishe demee dukka dhaqxee.
 
 ##
-Yeroo ittihalkana'u mukka dheeraa gubba korte damee isaatrati siree tolfate. Yeroo gara chiisichaa deemtu akaan jete wadeste; "ayyo, ayyo, ayyo na dhiftee dametee. Na dhiftee demetee, achuuman hafte. Abban koo nanajallatu kana booda. Harmee, yoom dhufta? Na dhifitee demetee?"
+Yeroo ittihalkana'u mukka dheeraa gubba korte damee isaatrati siree tolfate. Yeroo gara chiisichaa deemtu akaan jete wadeste, “Ayyo, ayyo, ayyo na dhiftee dametee. Na dhiftee demetee, achuuman hafte. Abban koo nanajallatu kana booda. Harmee, yoom dhufta? Na dhifitee demetee?”
 
 ##
 Gyyyaa itti aanu Simbagwayirn sirbaa sana irra debitee sirbtee. Dubartoonni laga sana bishaan waraaban sagalee ishee dhagahan. Sagaleen sunis sagalee mukaa itti fakkate chal jedhan. Ha ta'u malee dubartiin tokko sirrite dhaggeffatee turte.
