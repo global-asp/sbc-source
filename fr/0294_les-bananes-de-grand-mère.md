@@ -10,7 +10,7 @@ Un jour, je vis un grand panier de paille placé au soleil devant la maison de g
 C'était fascinant de regarder grand-mère, les bananes, les feuilles de bananier et le grand panier de paille. Mais grand-mère m'envoya retrouver maman pour aller chercher quelque-chose. « Grand-mère, s'il te plaît, laisse-moi regarder ce que tu prépares... » « Ne sois pas têtue, petite, fais ce que je te demande » insista-t-elle. Je partis donc en courant.
 
 ##
-A mon retour, grand-mère était assise dehors, mais il n'y avait plus ni panier, ni bananes. « Grand-mère, où est le panier, où sont toutes les bananes, et où est ... « Mais pour seule réponse, elle me dit : « Ils sont dans mon lieu magique. » J'étais très déçue.
+A mon retour, grand-mère était assise dehors, mais il n'y avait plus ni panier, ni bananes. « Grand-mère, où est le panier, où sont toutes les bananes, et où est ... » Mais pour seule réponse, elle me dit : « Ils sont dans mon lieu magique. » J'étais très déçue.
 
 ##
 Deux jours plus tard, grand-mère m'envoya dans sa chambre chercher son bâton de marche. Dès que j'ouvris la porte, je fus accueillie par une forte odeur de bananes mûres. Au milieu de la pièce, se trouvait le grand panier magique de grand-mère. Il était bien caché sous une vieille couverture. Je la soulevai et reniflai cette odeur extraordinaire.

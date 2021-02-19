@@ -4,10 +4,10 @@
 Il était une fois deux amies: Poule et Aigle. Elles habitaient en paix avec tous les autres oiseaux. Pas un seul ne pouvait voler.
 
 ##
-Un jour, il a eu une famine dans le pays. Aigle devait marcher très loin pour trouver de la nourriture. Elle revenait épuisée. « Il doit y avoir une façon plus simple de voyager ! » dit Aigle.
+Un jour, il y a eu une famine dans le pays. Aigle devait marcher très loin pour trouver de la nourriture. Elle revenait épuisée. « Il doit y avoir une façon plus simple de voyager ! » dit Aigle.
 
 ##
-Après une bonne nuit de sommeil, Poule eut une idée de génie. Elle commença à recueillir les plumes tombées de tous leurs amis oiseaux. « Cousons-les ensemble par-dessus nos propres plumes, » dit-elle. « Peut-être que cela rendra nos voyages plus faciless. »
+Après une bonne nuit de sommeil, Poule eut une idée de génie. Elle commença à recueillir les plumes tombées de tous leurs amis oiseaux. « Cousons-les ensemble par-dessus nos propres plumes, » dit-elle. « Peut-être que cela rendra nos voyages plus faciles. »
 
 ##
 Aigle était la seule dans le village qui avait une aiguille, alors elle commença à coudre la première. Elle se fabriqua une belle paire d'ailes et vola au-dessus de Poule. Poule emprunta l'aiguille, mais elle se fatigua de coudre. Elle laissa l'aiguille sur l'armoire et se rendit dans la cuisine pour préparer de la nourriture pour ses enfants.

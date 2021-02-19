@@ -46,7 +46,7 @@ Il se tint sous une grande fenêtre et commença à chanter sa chanson préfér�
 Les ouvriers arrêtèrent ce qu'ils faisaient. Ils écoutèrent la belle chanson de Sakima. Mais un homme dit, « Personne n'a été capable de consoler le patron. Est-ce que ce garçon aveugle pense qu'il pourra le consoler ? »
 
 ##
-Sakima termina de chanter sa chanson et s'apprêtait à partir. Mais l'homme riche sorti en vitesse et dit, « S'il te plaît, chante encore. »
+Sakima termina de chanter sa chanson et s'apprêtait à partir. Mais l'homme riche sortit en vitesse et dit, « S'il te plaît, chante encore. »
 
 ##
 À ce moment, deux hommes sont arrivés en portant quelqu'un sur une civière. Ils avaient trouvé le fils de l'homme riche tabassé et abandonné sur le bord de la route.

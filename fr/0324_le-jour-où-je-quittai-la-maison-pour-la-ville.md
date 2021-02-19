@@ -13,7 +13,7 @@ L'autobus de ville était presque plein, mais plus de personnes poussaient encor
 Des nouveaux passagers agrippaient leurs billets tandis qu'ils cherchaient un endroit pour s'asseoir dans l'autobus. Des femmes avec de jeunes enfants les installaient confortablement pour le long voyage.
 
 ##
-Je me suis serréé à côté d'une fenêtre. La personne à côté de moi tenait un sac vert en plastique fermement. Il portait de vieilles sandales, un manteau usé, et il semblait nerveux.
+Je me suis serré à côté d'une fenêtre. La personne à côté de moi tenait un sac vert en plastique fermement. Il portait de vieilles sandales, un manteau usé, et il semblait nerveux.
 
 ##
 Je regardai à l'extérieur de l'autobus et je réalisai que je quittais mon village, l'endroit où j'avais grandi. Je me rendais à la grande ville.
@@ -37,7 +37,7 @@ Lorsque l'autobus quitta l'arrêt, j'ai regardé par la fenêtre fixement. Je me
 Alors que le voyage avançait, l'intérieur de l'autobus est devenu très chaud. J'ai fermé les yeux en espérant dormir.
 
 ##
-Mais je repensais toujours à chez moi. Est-ce que ma mère serait en sécurité ? Est-ce que me lapins rapporteraient de l'argent ? Est-ce que mon frère se souviendrait d'arroser mes semis d'arbres ?
+Mais je repensais toujours à chez moi. Est-ce que ma mère serait en sécurité ? Est-ce que mes lapins rapporteraient de l'argent ? Est-ce que mon frère se souviendrait d'arroser mes semis d'arbres ?
 
 ##
 En chemin, j'ai mémorisé le nom de l'endroit où mon oncle vivait dans la grande ville. Je le marmonnais encore lorsque je me suis endormi.

@@ -13,7 +13,7 @@ Tôt le lendemain matin, ils sont partis vers le village dans la voiture de leur
 Après un certain temps, les enfants se sont endormis, fatigués.
 
 ##
-Papa réveilla Odongo et Apiyo lorsqu'ils arrivèrent au village. Ils ont trouvé leur grand-mère Nyar-Kanyada assise sous un arbre. En le luo, Nyar-Kanyada veut dire « fille du peuple de Kanyada ». C' était une femme belle et forte.
+Papa réveilla Odongo et Apiyo lorsqu'ils arrivèrent au village. Ils ont trouvé leur grand-mère Nyar-Kanyada assise sous un arbre. En luo, Nyar-Kanyada veut dire « fille du peuple de Kanyada ». C' était une femme belle et forte.
 
 ##
 Nyar-Kanyada les a accueillis dans sa maison et a dansé tout autour de la salle en chantant de bonheur. Ses petits-enfants avaient hâte de lui donner les cadeaux qu'ils avaient apportés de la ville. « Ouvre mon cadeau en premier, » dit Odongo. « Non, ouvre le mien en premier ! » dit Apiyo.
@@ -55,7 +55,7 @@ Trop tôt, les vacances étaient terminées et les enfants devaient retourner à
 Quand leur père est venu les chercher, ils ne voulaient pas partir. Les enfants ont supplié Nyar-Kanyada de venir avec eux à la ville. Elle sourit et dit, « Je suis trop vieille pour la ville. J'attendrai votre retour à mon village. »
 
 ##
-Odongo et Apiyo l'ont tous les deux embrassée fort et lui on dit au revoir.
+Odongo et Apiyo l'ont tous les deux embrassée fort et lui ont dit au revoir.
 
 ##
 Quand Odongo et Apiyo sont retournés à l'école ils ont raconté leurs histoires de la vie dans le village à leurs amis. Certains enfants croyaient que la vie en ville était bonne. D'autres étaient de l'avis que le village était meilleur. Et surtout, ils étaient tous d'accord que Odongo et Apiyo avaient une grand-mère merveilleuse !

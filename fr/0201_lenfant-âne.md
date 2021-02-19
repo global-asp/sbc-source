@@ -25,7 +25,7 @@ Ainsi, la femme se retrouva seule encore une fois. Elle se demanda quoi faire de
 Mais elle dut finalement accepter qu'il était son enfant et qu'elle était sa mère.
 
 ##
-Maintenant, si l'enfant était resté petit tout aurait été différent. Mais l'enfant-âne grandit et grandit jusqu'à ce qu'il ne puisse plus être porté sur le dos de sa mère. Et malgré ses plus grands efforts, il ne pouvait pas se comporter comme un être humain. Sa mère était très souvent fatiguée et frustrée. Parfois elle l'obligeait à faire du travail destiné aux animaux.
+Maintenant, si l'enfant était resté petit, tout aurait été différent. Mais l'enfant-âne grandit et grandit jusqu'à ce qu'il ne puisse plus être porté sur le dos de sa mère. Et malgré ses plus grands efforts, il ne pouvait pas se comporter comme un être humain. Sa mère était très souvent fatiguée et frustrée. Parfois elle l'obligeait à faire du travail destiné aux animaux.
 
 ##
 La confusion et la colère s'accumulèrent à l'intérieur d'Âne. Il ne pouvait pas faire ceci et il ne pouvait pas faire cela. Il ne pouvait pas être comme ceci et il ne pouvait pas être comme cela. Il devint tellement fâché qu'un jour il botta sa mère par terre.
@@ -34,13 +34,13 @@ La confusion et la colère s'accumulèrent à l'intérieur d'Âne. Il ne pouvait
 Âne fut rempli de honte. Il commença à se sauver aussi vite et aussi loin qu'il pu.
 
 ##
-Quand il s'arrêta de courir, la nuit était tombée et Âne était perdu. « Hi han ? » il chuchota à la noirceur. « Hi han ? » retourna la noirceur en écho. Il était seul. Se lovant en petite boule, il tomba dans un sommeil profond et agité..
+Quand il s'arrêta de courir, la nuit était tombée et Âne était perdu. « Hi han ? » il chuchota à la noirceur. « Hi han ? » retourna la noirceur en écho. Il était seul. Se lovant en petite boule, il tomba dans un sommeil profond et agité.
 
 ##
 Âne se réveilla et vit un vieil homme étrange qui le regardait. Il regarda dans les yeux du vieil homme et commença à ressentir un brin d'espoir.
 
 ##
-Âne parti vivre avec le vieil homme, qui lui montra plusieurs façons de survivre. Âne écouta et apprit, et le vieil homme aussi. Ils s'aidèrent l'un l'autre et ils rirent ensemble.
+Âne partit vivre avec le vieil homme, qui lui montra plusieurs façons de survivre. Âne écouta et apprit, et le vieil homme aussi. Ils s'aidèrent l'un l'autre et ils rirent ensemble.
 
 ##
 Un matin, le vieil homme demanda à Âne de le transporter jusqu'au sommet d'une montagne.
@@ -49,7 +49,7 @@ Un matin, le vieil homme demanda à Âne de le transporter jusqu'au sommet d'une
 En haut, parmi les nuages, ils s'endormirent. Âne rêva que sa mère était malade et qu'elle l'appelait. Et quand il se réveilla...
 
 ##
-... les nuages avaient disparus avec son ami le vieil homme.
+... les nuages avaient disparu avec son ami le vieil homme.
 
 ##
 Âne sut finalement quoi faire.

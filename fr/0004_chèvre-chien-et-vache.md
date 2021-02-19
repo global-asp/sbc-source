@@ -10,13 +10,13 @@ Quand ils atteignirent la fin de leur voyage, le chauffeur leur demanda de payer
 Chien paya un petit peu plus parce qu'il n'avait pas la monnaie exacte.
 
 ##
-Le chauffeur était prêt à donner Chien sa monnaie quand Chèvre est parti sans payer du tout.
+Le chauffeur était prêt à donner Chien sa monnaie quand Chèvre est partie sans payer du tout.
 
 ##
 Le chauffeur était très contrarié. Il partit sans donner Chien sa monnaie.
 
 ##
-Voilà pourquoi, même aujourd'hui, Chien cours vers une voiture pour jeter un coup d'œil à l'intérieur et trouver le chauffeur qui lui doit sa monnaie.
+Voilà pourquoi, même aujourd'hui, Chien court vers une voiture pour jeter un coup d'œil à l'intérieur et trouver le chauffeur qui lui doit sa monnaie.
 
 ##
 Chèvre fuit le son d'une voiture. Elle a peur qu'elle soit arrêtée pour ne pas avoir payé son tarif.

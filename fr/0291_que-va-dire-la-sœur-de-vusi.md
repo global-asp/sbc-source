@@ -16,7 +16,7 @@ Les garçons étaient désolés d'avoir taquiné Vusi. « Nous ne pouvons rien f
 En chemin, il rencontra deux hommes, qui construisaient une maison. « Pouvons-nous utiliser ce solide bâton ? » demanda l'un d'eux. Mais le bâton n'était pas assez solide pour la construction, et il s'est rompu.
 
 ##
-« Qu'avez-vous fait ? » s'écria Vusi. « Ce bâton était un cadeau pour ma sœur. Les cueilleurs de fruits m'ont donné le bâton parce qu'ils ont cassé l'œuf pour le gâteau. Le gâteau était pour le mariage de ma sœur. Maintenant il n'y a pas d'œuf, pas de gâteau, et aucun cadeau. Que va dire ma sœur ?
+« Qu'avez-vous fait ? » s'écria Vusi. « Ce bâton était un cadeau pour ma sœur. Les cueilleurs de fruits m'ont donné le bâton parce qu'ils ont cassé l'œuf pour le gâteau. Le gâteau était pour le mariage de ma sœur. Maintenant il n'y a pas d'œuf, pas de gâteau, et aucun cadeau. Que va dire ma sœur ? »
 
 ##
 Les constructeurs étaient désolés d'avoir brisé le bâton. « Nous ne pouvons rien faire pour le gâteau, mais voici du foin pour ta sœur, » dit l'un d'eux. Vusi continua sa route.

@@ -4,7 +4,7 @@
 Il y a longtemps, trois filles sont sorties pour aller chercher du bois.
 
 ##
-C'était une journée très chaude, alors elles sont descendues à la rivière pour nager. Elles ont joué, fait des éclaboussoures et nagé dans l'eau.
+C'était une journée très chaude, alors elles sont descendues à la rivière pour nager. Elles ont joué, fait des éclaboussures et nagé dans l'eau.
 
 ##
 Soudainement, elles se sont rendu compte qu'il était tard. Elles se sont dépêchées de rentrer au village.

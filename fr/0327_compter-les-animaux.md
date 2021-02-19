@@ -4,7 +4,7 @@
 Un éléphant va boire de l'eau.
 
 ##
-Deux girafes vont boire del'eau.
+Deux girafes vont boire de l'eau.
 
 ##
 Trois bœufs et quatre oiseaux vont boire de l'eau.
