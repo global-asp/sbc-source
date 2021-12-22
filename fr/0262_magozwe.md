@@ -7,7 +7,7 @@ Dans la ville animée de Nairobi, loin d'un climat familial attentif et aimant, 
 Quand Magozwe perdit ses parents, il n'avait que cinq ans. Après leur décès, il alla s'installer avec son oncle, mais ce dernier n'avait pas une once d'affection pour Magozwe. Il ne lui donnait pas assez de nourriture et le faisait travailler très dur.
 
 ##
-Si Magozwe avait le malheur de se plaindre ou de répliquer, son oncle le frappait. Quand Magozwe demandait s'il pouvait aller à l'école, son oncle le frappait de plus belle, lui disant : « Tu es trop stupide pour apprendre quoi que ce soit ». Après avoir supporté ce traitement pendant trois ans, Magozwe s'enfuit de chez son oncle et commença à vivre dans la rue.
+Si Magozwe avait le malheur de se plaindre ou de répliquer, son oncle le frappait. Quand Magozwe demandait s'il pouvait aller à l'école, son oncle le frappait de plus belle, lui disant : « Tu es trop stupide pour apprendre quoi que ce soit. » Après avoir supporté ce traitement pendant trois ans, Magozwe s'enfuit de chez son oncle et commença à vivre dans la rue.
 
 ##
 La vie dans la rue était difficile et la plupart des garçons avaient du mal à se procurer de la nourriture. Il leur arrivait de se faire arrêter, et quelquefois, ils se faisaient tabasser. Lorsqu'ils étaient malades, il n'y avait personne pour les aider. Le groupe dépendait du peu d'argent gagné en mendiant, ou en vendant des plastiques ou autres objets recyclables. Les bagarres avec les autres groupes qui voulaient contrôler toute la ville rendait leur vie encore plus difficile.
@@ -25,7 +25,7 @@ Il faisait froid. Magozwe se tenait dans la rue, mendiant, quand soudain un homm
 Les mois suivants, le jeune sans-abri avait pris l'habitude de voir Thomas dans les parages. Il aimait parler avec les gens qui vivaient dans la rue. Thomas écoutait les histoires que lui racontaient les gens. Il était sérieux, patient. Il n'était jamais impoli ni irrespectueux. Certains garçons commencèrent à se rendre à la maison jaune et bleue pour avoir un repas à midi.
 
 ##
-Magozwe s'asseyait sur le trottoir et regardait les images de son livre quand soudain, Thomas vint s'assoir à côté de lui. « De quoi parle l'histoire » ? demanda Thomas. « C'est l'histoire d'un garçon qui devient pilote », lui répondit Magozwe. « Comment s'appelle ce garçon », demanda Thomas. Magozwe répondit calmement : « Je ne sais pas, je ne sais pas lire »
+Magozwe s'asseyait sur le trottoir et regardait les images de son livre quand soudain, Thomas vint s'assoir à côté de lui. « De quoi parle l'histoire » ? demanda Thomas. « C'est l'histoire d'un garçon qui devient pilote », lui répondit Magozwe. « Comment s'appelle ce garçon », demanda Thomas. Magozwe répondit calmement : « Je ne sais pas, je ne sais pas lire. »
 
 ##
 Quand ils se rencontraient, Magozwe commençait à raconter son histoire à Thomas. L'histoire de son oncle et la raison pour laquelle il s'était enfui. Thomas ne parlait pas beaucoup et ne disait pas à Magozwe ce qu'il devait faire, mais l'écoutait toujours très attentivement. Quelques fois, ils parlaient autour d'un repas qu'ils prenaient dans la maison au toit bleu.
@@ -46,7 +46,7 @@ Et Magozwe emménagea dans une chambre, dans une maison au toit vert. Il partage
 Magozwe commença l'école. C'était difficile. Il avait beaucoup à rattraper. Quelquefois il voulait abandonner. Mais il pensait à la possibilité de devenir pilote ou joueur de football. Et comme les deux garçons de l'histoire, il n'abandonna pas.
 
 ##
-Magozwe était assis à l'entrée de la maison au toit vert, et lisait un livre qui venait de l'école. Thomas vint et s'assis à côté de lui. Il lui demanda : « De quoi parle l'histoire ? » Magozwe répondit : « C'est l'histoire d'un petit garçon qui voulait devenir professeur ». «Comment s'appelle le garçon », lui demanda Thomas. « Son nom est Magozwe », lui répondit Magozwe, avec un sourire.
+Magozwe était assis à l'entrée de la maison au toit vert, et lisait un livre qui venait de l'école. Thomas vint et s'assis à côté de lui. Il lui demanda : « De quoi parle l'histoire ? » Magozwe répondit : « C'est l'histoire d'un petit garçon qui voulait devenir professeur. » «Comment s'appelle le garçon », lui demanda Thomas. « Son nom est Magozwe », lui répondit Magozwe, avec un sourire.
 
 ##
 * License: [CC-BY]
